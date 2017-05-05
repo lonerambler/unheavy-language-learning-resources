@@ -14,6 +14,8 @@ Eine Bearbeitung des weltberühmten Märchens von E.T.A. Hoffmann mit
 * Phonetik- und HV—Übungen und sämtlichen Texten auf CD
 * Abschlusstest, zur Wiederholung des Inhalts der Geschichte
 
+[TOC]
+
 ## Hoffmann und Tschaikowski
 ### E.T.A. Hoffmann
 _Nußknacker und Mausekönig_ ist ein Weihnachtsmärchen von E.T.A. Hoffmann. Er schreibt das Märchen 1816 in Berlin. Die
@@ -181,65 +183,50 @@ Lieblingspuppen schlafen.
 „lch hoffe, dass Onkel Drosselmeyer Recht hat“, sagt sie traurig. „Gute Nacht, lieber Nussknacker.“
 
 ## Kapitel 3 - Mitternachtszauber
-Nach der Feier sind Clara und Fritz müde und gehen nach
-; oben zu Bett. Aber Clara kann nicht schlafen. Sie denkt
-an ihren Nussknacker und seinen Arm. Der Arm vom
-Nussknacker ist nämlich gebrochen. Sie ist sehr traurig.
+Nach der Feier sind Clara und Fritz müde und gehen nach oben zu Bett. Aber Clara kann nicht schlafen. Sie denkt an
+ihren Nussknacker und seinen Arm. Der Arm vom Nussknacker ist nämlich gebrochen. Sie ist sehr traurig.
+
 „Wie geht es meinem Nussknacker?“‚ denkt sie.
 
-„Schläft er? Ich kann nicht bis morgen früh warten.
-Ich möchte ihn jetzt sehen.“
+„Schläft er? Ich kann nicht bis morgen früh warten. Ich möchte ihn jetzt sehen.“
 
-Clara steht amc und zieht ihre Hausschuhe an. Dann geht sie
-die Treppe runter. Im großen Haus ist es dunkel und still. Das
-Wohnzimmer und der Weihnachtsbaum sehen im Dunkeln
-seltsam aus. Amc dem Tisch liegen noch Kekse und ein Rest von
+Clara steht auf und zieht ihre Hausschuhe an. Dann geht sie die Treppe runter. Im großen Haus ist es dunkel und still.
+Das Wohnzimmer und der Weihnachtsbaum sehen im Dunkeln seltsam aus. Amc dem Tisch liegen noch Kekse und ein Rest von
 dem Weihnachtskuchen.
 
 „Ich habe Hunger“, denkt Clara. „Ich nehme mir ein Stück Kuchen.“
 
-Sie schaut amc die Wanduhr, die in der Ecke vom Wohnzimmer
-an der Wand hängt. Es ist Mitternacht. Plötzlich passiert etwas
-Seltsames: der Tisch wird groß und größer.
+Sie schaut auf die Wanduhr, die in der Ecke vom Wohnzimmer an der Wand hängt. Es ist Mitternacht. Plötzlich passiert
+etwas Seltsames: der Tisch wird groß und größer.
 
 „Was ist denn mit dem Tisch los?“, denkt sie.
 
-Dann schaut sie zum Weihnachtsbaum und sieht, dass der
-auch immer größer wird. Auf einmal ist im Wohnzimmer alles
+Dann schaut sie zum Weihnachtsbaum und sieht, dass der auch immer größer wird. Auf einmal ist im Wohnzimmer alles
+riesig und Clara sehr klein.
 
-riesig1 und Clara sehr klein.
+„Warum ist alles so groß?", denkt sie. „Und warum bin ich so klein?“ Clara hat Angst.
 
-„Warum ist alles so groß?", denkt sie. „Und warum bin ich so
-klein?“ Clara hat Angst.
+Sie hört ein Geräusch hinter sich und dreht sich um. Schnell versteckt sie sich unter dem Tisch. Noch einmal hört sie
+das Geräusch. Und plötzlich sieht sie viele Mäuse. Die Mäuse sind sehr groß und haben einen Schwanz. Die Schwänze sind
+sehr lang. Die Mäuse rennen ins Wohnzimmer. Der Mausekönig führt sie an: Er ist ihr Kapitän. Der Mausekönig sieht
+furchtbar aus.
 
-Sie hört ein Geräusch hinter sich und dreht sich um. Schnell
-versteckt sie sich unter dem Tisch. Noch einmal hört sie das
-Geräusch. Und plötzlich sieht sie viele Mäuse. Die Mäuse sind
-sehr groß und haben einen Schwanz. Die Schwänze sind sehr
-lang. Die Mäuse rennen ins Wohnzimmer. Der Mausekönig führt
-sie an: Er ist ihr Kapitän. Der Mausekönig sieht furchtbar aus.
+„Ach, du lieber Himmel!“, denkt sie, „diese Mäuse sind unglaublich groß! Und sie sehen nicht freundlich aus.“
 
-„Ach, du lieber Himmel!“, denkt sie, „diese Mäuse sind
-unglaublich groß! Und sie sehen nicht freundlich aus.“
-
-Der König und die Mäuse springen auf den Tisch und fangen an,
-den Weihnachtskuchen und die Kekse zu essen. Clara bleibt in ihrem
-Versteck unter dem Tisch und weiß nicht, was sie machen soll.
+Der König und die Mäuse springen auf den Tisch und fangen an, den Weihnachtskuchen und die Kekse zu essen. Clara bleibt
+in ihrem Versteck unter dem Tisch und weiß nicht, was sie machen soll.
 
 Der Mausekönig sieht Clara und läuft auf sie zu.
 
 „Oh nein!", schreit sie, „wohin soll ich nun laufen?“
 
-Plötzlich hört sie ein Geräusch, das aus der Ecke vom
-Wohnzimmer kommt. Clara dreht sich um: die Spielzeugsoldaten von
-Fritz marschieren durch das Wohnzimmer. Sie haben einen Helm,
-eine Jacke und eine Hose an. Die Hosen sind blau und die jacken rot.
+Plötzlich hört sie ein Geräusch, das aus der Ecke vom Wohnzimmer kommt. Clara dreht sich um: die Spielzeugsoldaten von
+Fritz marschieren durch das Wohnzimmer. Sie haben einen Helm, eine Jacke und eine Hose an. Die Hosen sind blau und die
+Jacken rot.
 
-„Das sind die Spielzeugsoldaten von Fritz!“‚ sagt Clara
-fröhlich. „Sie kommen, um mir zu helfen!“
+„Das sind die Spielzeugsoldaten von Fritz!“‚ sagt Clara fröhlich. „Sie kommen, um mir zu helfen!“
 
-Die Spielzeugsoldaten laufen auf die Mäuse zu und die Mäuse
-amc die Spielzeugsoldaten.
+Die Spielzeugsoldaten laufen auf die Mäuse zu und die Mäuse auf die Spielzeugsoldaten.
 
 „Jetzt beginnt der Kampf“, denkt Clara und schaut erstaunt zu.
 
@@ -249,70 +236,48 @@ Es ist sehr laut und der Nussknacker wird wach.
 
 Er steht schnell auf und geht zu den Spielzeugsoldaten.
 
-„Ich bin Kapitän Nussknacker, und jetzt bin ich euer Kapitän“,
-sagt er. „Kommt! jetzt kämpfen wir zusammen gegen die Mäuse.
-
-|“
-
-Folgt mir
+„Ich bin Kapitän Nussknacker, und jetzt bin ich euer Kapitän“, sagt er. „Kommt! jetzt kämpfen wir zusammen gegen die
+Mäuse. Folgt mir!“
 
 „Also los!“, rufen die Spielzeugsoldaten fröhlich.
 
-Sie folgen dem Kapitän und fangen an, gegen die Mäuse zu
-kämpfen. Der Kampf geht um den Weihnachtsbaum herum und
-um den Tisch. Sie kämpfen in den Ecken vom Wohnzimmer, wo
-es dunkel ist. Die Spielzeugsoldaten sind gute Kämpfer, aber
-einige stolpern über die Mäuseschwänze. Es ist sehr laut.
+Sie folgen dem Kapitän und fangen an, gegen die Mäuse zu kämpfen. Der Kampf geht um den Weihnachtsbaum herum und um den
+Tisch. Sie kämpfen in den Ecken vom Wohnzimmer, wo es dunkel ist. Die Spielzeugsoldaten sind gute Kämpfer, aber einige
+stolpern über die Mäuseschwänze. Es ist sehr laut.
 
-Der Nussknacker und der Mausekönig kämpfen gegeneinander
-und benutzen ihre Schwerter. Sie kämpfen überall im Wohnzimmer
-und laufen von einer Ecke in die andere. Dann geht der Kampf um
-den Weihnachtsbaum herum. Sie sind sehr laut. Der Mausekönig
-ist sehr stark, und der Nussknacker ist sehr tapfer. Aber der
-Nussknacker fällt auf den Schwanz von dem Mausekönig.
+Der Nussknacker und der Mausekönig kämpfen gegeneinander und benutzen ihre Schwerter. Sie kämpfen überall im Wohnzimmer
+und laufen von einer Ecke in die andere. Dann geht der Kampf um den Weihnachtsbaum herum. Sie sind sehr laut. Der
+Mausekönig ist sehr stark, und der Nussknacker ist sehr tapfer. Aber der Nussknacker fällt auf den Schwanz von dem
+Mausekönig.
 
-„Oh, mein armer Nussknackerl“, sagt Clara. „Ich muss ihm
-helfen, aber wie?“
+„Oh, mein armer Nussknacker!“, sagt Clara. „Ich muss ihm helfen, aber wie?“
 
-Sie denkt kurz nach und nimmt dann ihren Hausschuh und
-wirft ihn gegen den Mausekönig. Der Schuh trifft den Mausekönig
+Sie denkt kurz nach und nimmt dann ihren Hausschuh und wirft ihn gegen den Mausekönig. Der Schuh trifft den Mausekönig
 am Kopf. Er fällt zu Boden und bewegt sich nicht mehr.
 
 „Oh nein!“, rufen die Mäuse.
 
 Sie laufen zu ihm.
 
-„Der König ist verletzt“, sagt eine Maus traurig. „Er bewegt
-sich nicht. Wir müssen ihn nach Hause bringen.“
+„Der König ist verletzt“, sagt eine Maus traurig. „Er bewegt sich nicht. Wir müssen ihn nach Hause bringen.“
 
 Die Mäuse tragen den König aus dem Wohnzimmer.
 
-„Hurra! Hurral“, rufen die Spielzeugsoldaten.
+„Hurra! Hurra!“, rufen die Spielzeugsoldaten.
 
-Ein Soldat schießt mit der Spielzeugkanone. PENG! Es folgt ein
-sehr lautes Geräusch und im Raum gibt es viel Rauch. Die Mäuse
-haben Angst und laufen weg.
+Ein Soldat schießt mit der Spielzeugkanone. PENG! Es folgt ein sehr lautes Geräusch und im Raum gibt es viel Rauch. Die
+Mäuse haben Angst und laufen weg.
 
-Mit den Händen hält Clara sich die Augen zu, aber nur für ein
-paar Sekunden.
+Mit den Händen hält Clara sich die Augen zu, aber nur für ein paar Sekunden.
 
-„Ich habe Angst, die Augen aufzumachen”, denkt sie. „Was ist
-denn hier los? Es ist so laut, und ich rieche Rauch. Wo ist mein
+„Ich habe Angst, die Augen aufzumachen”, denkt sie. „Was ist denn hier los? Es ist so laut, und ich rieche Rauch. Wo
+ist mein lieber Nussknacker?”
 
-lieber Nussknacker?”
+## Kapitel 4 - Der Prinz
+Clara hat immer noch die Hände vor den Augen. Der Rauch und das Geräusch sind jetzt weg. Alles ist ruhig.
 
-Der Prinz
-
-lara hat immer noch die Hände vor den Augen. Der
-
-Rauch und das Geräusch sind jetzt weg. Alles ist ruhig.
-
-„Vielleicht kann ich jetzt die Augen wieder
-
-aufmachen“, denkt sie. Langsam nimmt sie die Hände
-
- vom Gesicht und macht die Augen auf. Sie schaut sich
-um und ist sehr überrascht.
+„Vielleicht kann ich jetzt die Augen wieder aufmachen“, denkt sie. Langsam nimmt sie die Hände vom Gesicht und macht
+die Augen auf. Sie schaut sich um und ist sehr überrascht.
 
 „Träume ich?“, denkt sie. „Ich bin nicht mehr im Wohnzimmer.
 Wo bin ich? Das ist Zauberei 1!“
@@ -460,9 +425,7 @@ Sie sind sehr gut und ihre Kostüme sind wunderschön. Es gibt
 
 auch Musik! Und nun, setz dich auf den Thron, und viel Spaß!“
 
-Das Land
-der Süßigkeiten
-
+## Kapitel 5 - Das Land der Süßigkeiten
 [le sitzen im Thronsaal. Ein Orchester macht Musik. !
 Die Musik ist sehr schön. Man spielt Violine, Hörner
 und Klavier. Die Aufführung fängt an.
@@ -567,8 +530,7 @@ sehr glücklich.“
 
 „Ja, vielen Dank, jedem von euch“, sagt der Prinz lächelnd.
 
-Weihnachtsmorgen
-
+## Kapitel 6 - Weihnachtsmorgen
 ie Tänzer sitzen nach der Aufführung alle im
 Thronsaal, unterhalten sich und lachen.
 
