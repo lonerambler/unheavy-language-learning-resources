@@ -182,6 +182,36 @@ Lieblingspuppen schlafen.
 
 „lch hoffe, dass Onkel Drosselmeyer Recht hat“, sagt sie traurig. „Gute Nacht, lieber Nussknacker.“
 
+#### Die Weihnachtszeit in Deutschland
+In Deutschland ist Weihnachten sehr wichtig. Im Dezember findet man in allen Städten Weihnachtsmärkte mit
+Weihnachtsbäumen.
+
+Die Familien schmücken den Tannenbaum am 24. Dezember mit Kugeln. Perlenketten und Weihnachtsfiguren. Ein Stern oder
+ein Engel kommt auf die Baumspitze. Am Abend findet die Weihnachtsbescherung statt. Alle bekommen Geschenke.
+
+Auch der 6. Dezember ist in Deutschland wichtig: Kinder feiern Nikolaustag. Am 5. Dezember lassen sie ihre Schuhe
+draußen vor der Tür. Am nächsten Morgen sind sie voll mit Süßigkeiten und Geschenken. Aber böse Kinder bekommen Kohle!
+
+### Die Stadt Nürnberg
+Diese Geschichte _Nußknacker und Mausekönig_ spielt im 19. Jahrhundert in Nürnberg. Diese Stadt liegt in Süddeutschland
+und ist sehr schön. Die Gebäude im Stadtzentrum sind alt und es gibt sehr viele Denkmäler.
+
+Im Sommer ist es warm, aber im Winter ist es kalt und es schneit oft. Nürnberg ist für seinen Weihnachtsmarkt bekannt.
+Dort kann man Weihnachtsdekorationen, Spielzeug, Süßigkeiten, Speisen und Getränke kaufen. Jedes Jahr findet hier auch
+eine Spielwarenmesse statt. Diese Messe ist sehr wichtig: Spielwarenhersteller aus der ganzen Welt treffen sich in
+Nürnberg und stellen ihre neuen Spielsachen aus.
+
+#### Alles über Nürnberg
+Einwohner: ca. 500 000
+
+Berühmte Bürger:
+- Albrecht Dürer (1471-1528): Maler und Künstler
+- Johann Pachelbel (1653-1706): Musiker und Komponist
+
+Produkte: Nürnberger Lebkuchen, auch Pfefferkuchen genannt, Nürnberger Rostbratwurst, Uhren, Spielwaren
+
+Sehenswürdigkeiten: die Nürnberger Burg, der Hauptmarkt, der Schöne Brunnen
+
 ## Kapitel 3 - Mitternachtszauber
 Nach der Feier sind Clara und Fritz müde und gehen nach oben zu Bett. Aber Clara kann nicht schlafen. Sie denkt an
 ihren Nussknacker und seinen Arm. Der Arm vom Nussknacker ist nämlich gebrochen. Sie ist sehr traurig.
@@ -279,13 +309,10 @@ Clara hat immer noch die Hände vor den Augen. Der Rauch und das Geräusch sind 
 „Vielleicht kann ich jetzt die Augen wieder aufmachen“, denkt sie. Langsam nimmt sie die Hände vom Gesicht und macht
 die Augen auf. Sie schaut sich um und ist sehr überrascht.
 
-„Träume ich?“, denkt sie. „Ich bin nicht mehr im Wohnzimmer.
-Wo bin ich? Das ist Zauberei 1!“
+„Träume ich?“, denkt sie. „Ich bin nicht mehr im Wohnzimmer. Wo bin ich? Das ist Zauberei!“
 
-Clara ist nicht im Wohnzimmer. Sie befindet sich in einem
-Zauberwald mit vielen Bäumen. Überall liegt Schnee, und hoch
-am Himmel scheint der Mond. Sie sieht einen Schlitten mit zwei
-Pferden. Die Pferde sind weiß.
+Clara ist nicht im Wohnzimmer. Sie befindet sich in einem Zauberwald mit vielen Bäumen. Überall liegt Schnee, und hoch
+am Himmel scheint der Mond. Sie sieht einen Schlitten mit zwei Pferden. Die Pferde sind weiß.
 
 Ein Junge sitzt auf dem Schlitten. Er ist sehr schön.
 
@@ -293,137 +320,104 @@ Ein Junge sitzt auf dem Schlitten. Er ist sehr schön.
 
 „Woher weißt du meinen Namen?“‚ fragt Clara.
 
-Derjunge lächelt.
+Der Junge lächelt.
 
 „Wer bist du?”, fragt Clara.
 
-„Weißt du das nicht?“, sagt der Junge. „Oh Clara, der Fluch 2 ist
-gebrochen 3!“
+„Weißt du das nicht?“, sagt der Junge. „Oh Clara, der Fluch ist gebrochen!“
 
 „Ein Fluch?“‚ sagt Clara. „Ich verstehe nicht.“
 
-„Ich bin ein Prinz“, sagt der junge lächelncl.
+„Ich bin ein Prinz“, sagt der junge lächelnd.
 
 „Ein Prinz?“, fragt Clara sanft.
 
-„Genau, ich bin ein Prinz“, erklärt der Junge. „Manchmal
-spricht der Mausekönig einen Fluch gegen jemanden aus. Nur die
+„Genau, ich bin ein Prinz“, erklärt der Junge. „Manchmal spricht der Mausekönig einen Fluch gegen jemanden aus. Nur die
 Liebe kann den Fluch brechen."
 
-Sie schaut ihn sich gut an. Dann sieht sie sich seine Kleider an.
-Sie sind sehr schön und teuer.
+Sie schaut ihn sich gut an. Dann sieht sie sich seine Kleider an. Sie sind sehr schön und teuer.
 
-Plötzlich ruft sie: „Ich kenne dich! Du bist der Nussknacker.
-Mein Nussknacker aus Holz!“
+Plötzlich ruft sie: „Ich kenne dich! Du bist der Nussknacker. Mein Nussknacker aus Holz!“
 
-„Genaul“, antwortet der Prinz. „Und jetzt werde ich nie mehr
-ein Nussknacker sein. Deine Liebe hat aus mir einen Prinzen
-gemacht — deinen Prinzen!“
+„Genau!“, antwortet der Prinz. „Und jetzt werde ich nie mehr ein Nussknacker sein. Deine Liebe hat aus mir einen
+Prinzen gemacht - _deinen Prinzen_!“
 
-So überrascht ist Clara, dass sie nicht sprechen kann. Sie
-schaut zu dem Prinzen und lächelt.
+So überrascht ist Clara, dass sie nicht sprechen kann. Sie schaut zu dem Prinzen und lächelt.
 
-„Ich danke dir, dass du den Fluch gebrochen hast", sagt der
-Prinz. „Ich möchte dich jetzt zu meinem Schloss führen."
+„Ich danke dir, dass du den Fluch gebrochen hast", sagt der Prinz. „Ich möchte dich jetzt zu meinem Schloss führen."
 
 „Du hast ein Schloss?“, fragt Clara erstaunt.
 
-„Natürlich habe ich ein Schloss“, sagt der Prinz. „Ich bin der
-Prinz aus dem Land der Süßigkeiten.“
+„Natürlich habe ich ein Schloss“, sagt der Prinz. „Ich bin der Prinz aus dem Land der Süßigkeiten.“
 
-„Das Land der Süßigkeitenl”, sagt Clara. „Der Name von
-deinem Land ist wirklich sehr schön!“
+„Das Land der Süßigkeiten!”, sagt Clara. „Der Name von deinem Land ist wirklich sehr schön!“
 
-„Mein Land ist wunderschön“, sagt der Prinz. „Komm! Setz
-dich neben mich auf den Schlitten. Ich werde dich ins Land der
+„Mein Land ist wunderschön“, sagt der Prinz. „Komm! Setz dich neben mich auf den Schlitten. Ich werde dich ins Land der
+Süßigkeiten bringen!“
 
-Süßigkeiten bringen
+Clara steigt auf den Schlitten und setzt sich auf ein Kissen. Das Kissen ist gelb und sehr weich. Clara sitzt neben dem
+Prinzen. Und dann fliegt der Schlitten am Himmel durch die Nacht.
 
-Clara steigt auf den Schlitten und setzt sich auf ein Kissen. Das
-Kissen ist gelb und sehr weich. Clara sitzt neben dem Prinzen.
-Und dann fliegt der Schlitten am Himmel durch die Nacht.
+„Das ist aber aufregend“, sagt Clara. „Wir fliegen an dem Mond und an den Sternen vorbei.“
 
-„Das ist aber aufregend“, sagt Clara. „Wir fliegen an dem
-Mond und an den Sternen vorbei.“
+„Kannst du das Schloss da unten sehen?“, fragt der Prinz und zeigt mit dem Finger auf einen Palast. Neben dem Palast
+gibt es einen See.
 
-„Kannst du das Schloss da unten sehen?“, fragt der Prinz und
-zeigt mit dem Finger auf einen Palast. Neben dem Palast gibt es
-einen See.
+„Ja, ich sehe das Schloss, und ich sehe auch den See.“
 
-„ja, ich sehe das Schloss, und ich sehe auch den See.“
+Das Schloss sieht wie ein riesiger Geburtstagskuchen aus. Rosa, Gelb, Blau, Grün, Orange und Braun sind seine Farben!
 
-Das Schloss sieht wie ein riesiger Geburtstagskuchen aus.
-Rosa, Gelb, Blau, Grün, Orange und Braun sind seine Farben!
-
-„Das ist das Schloss vom Land der Süßigkeitenl“, sagt der
-Prinz zufrieden. „Es ist aus Zucker, Süßigkeiten, Schokolade und
-Pfefferminzstäbchen gebaut. im Garten gibt es viele
-Überraschungen, und sie haben alle eine magische Kraft. In
+„Das ist das Schloss vom Land der Süßigkeiten!“, sagt der Prinz zufrieden. „Es ist aus Zucker, Süßigkeiten, Schokolade
+und Pfefferminzstäbchen gebaut. Im Garten gibt es viele Überraschungen, und sie haben alle eine magische Kraft. In
 diesem Land sind alle fröhlich.“
 
-„Märchenhaftl“, sagt Clara.
+„Märchenhaft!“, sagt Clara.
 
 „Heute werde ich dir Gerhard vorstellen“, erklärt der Prinz.
 
 „Wer ist Gerhard?“, fragt Clara.
 
-„Er ist sehr wichtig für mich“, sagt der Prinz. „Er ist für mich
-wie ein Großvater. Ich bin oft nicht da, und dann passt Gerhard
-auf das Schloss auf.“
+„Er ist sehr wichtig für mich“, sagt der Prinz. „Er ist für mich wie ein Großvater. Ich bin oft nicht da, und dann
+passt Gerhard auf das Schloss auf.“
 
 „Dein Schloss ist sehr groß“, sagt Clara.
 
 „Ja, es ist sehr groß“, sagt der Prinz. „Es hat hundert Räume.“
 
-„Hundert Räumel“, sagt Clara überrascht. „In meinem Haus in
-Nürnberg haben wir nur zwölf Zimmer.“
+„Hundert Räume!“, sagt Clara überrascht. „In meinem Haus in Nürnberg haben wir nur zwölf Zimmer.“
 
-Sie steigen vom Schlitten. Es schneit. Überall tanzen
-Schneeflocken.
+Sie steigen vom Schlitten. Es schneit. Überall tanzen Schneeflocken.
 
-„Die Schneeflocken tanzen um uns herum“, sagt Clara. „Wie
+„Die Schneeflocken tanzen um uns herum“, sagt Clara. „Wie schön!“
 
-schön!“
+Clara und der Prinz stehen jetzt vor dem Schlosstor. Das Tor ist sehr groß und rosa, und es ist aus Zucker und
+Schokolade. Sechs Affen stehen am Tor. Sie tragen eine Jacke. Die Affen begrüßen den Prinzen mit einem Lied.
 
-Clara und der Prinz stehen jetzt vor dem Schlosstor. Das Tor
-ist sehr groß und rosa, und es ist aus Zucker und Schokolade.
-Sechs Affen stehen am Tor. Sie tragen eine Jacke. Die Affen
-begrüßen den Prinzen mit einem Lied.
+„Hallo, meine Freunde!“, sagt der Prinz. „Dankeschön für das Lied.“
 
-„Hallo, meine Freunde!“, sagt der Prinz. „Dankeschön für das
-Lied.“
+Clara und der Prinz gehen in den Garten. An den Bäumen hängen Früchte aus Gold, und überall klingt Musik. Die Blumen
+sind aus Schokolade und Süßkirschen. Sie spazieren einen Bach entlang.
 
-Clara und der Prinz gehen in den Garten. An den Bäumen hängen
-Früchte aus Gold, und überall klingt Musik. Die Blumen sind aus
-Schokolade und Süßkirschen. Sie spazieren einen Bach entlang.
-
-„Das ist der 0rangenbach“, erklärt der Prinz. „In diesem Bach
-fließt Orangensaft.“
+„Das ist der Orangenbach“, erklärt der Prinz. „In diesem Bach fließt Orangensaft.“
 
 „Und es riecht auch so schön nach Orangen“, sagt Clara.
 
-„Und das sind Marmeladenbäume”, erklärt der Prinz weiter und
-zeigt auf einige Bäume neben dem Bach. „Das ist ein Baum aus
-Erdbeermarmelade und der andere da ist aus Aprikosenmarmelade.“
+„Und das sind Marmeladenbäume”, erklärt der Prinz weiter und zeigt auf einige Bäume neben dem Bach. „Das ist ein Baum
+aus Erdbeermarmelade und der andere da ist aus Aprikosenmarmelade.“
 
-„Meine Lieblingsmarmeladenl“, sagt Clara.
+„Meine Lieblingsmarmeladen!“, sagt Clara.
 
-Als sie zum Schloss zurückgehen, werden sie von einem Mann
-begrüßt. Seine Haare sind lang und weiß. Der Mann ist groß. Er
-trägt eine Jacke. Die Jacke ist lang und ihre Farben sind Rot und
-Gold.
+Als sie zum Schloss zurückgehen, werden sie von einem Mann begrüßt. Seine Haare sind lang und weiß. Der Mann ist groß.
+Er trägt eine Jacke. Die Jacke ist lang und ihre Farben sind Rot und Gold.
 
-„Willkommen zu Hause, mein lieber Prinz“, sagt er. „Alle
-freuen sich, dass der Fluch gebrochen ist.“ Der Mann schaut zu
+„Willkommen zu Hause, mein lieber Prinz“, sagt er. „Alle freuen sich, dass der Fluch gebrochen ist.“ Der Mann schaut zu
 Clara und lächelt.
 
 „Vielen Dank, Gerhard“, antwortet der Prinz.
 
-„Und jetzt feiern wir. Wir haben eine Aufführung für dich
-vorbereitet“, sagt Gerhard. „Wir haben Tänzer hierher4 gerufen.
-Sie sind sehr gut und ihre Kostüme sind wunderschön. Es gibt
-
-auch Musik! Und nun, setz dich auf den Thron, und viel Spaß!“
+„Und jetzt feiern wir. Wir haben eine Aufführung für dich vorbereitet“, sagt Gerhard. „Wir haben Tänzer hierher
+gerufen. Sie sind sehr gut und ihre Kostüme sind wunderschön. Es gibt auch Musik! Und nun, setz dich auf den Thron, und
+viel Spaß!“
 
 ## Kapitel 5 - Das Land der Süßigkeiten
 [le sitzen im Thronsaal. Ein Orchester macht Musik. !
@@ -434,7 +428,7 @@ Gerhard. „Die Zuckerpflaumen—Fee erscheint als
 
 Erste.“
 
-    
+
 
 Die Zuckerpflaumen-Fee ist die Lieblingstänzerin vom Prinzen.
 Sie trägt ein Kostüm und Tanzschuhe. Das Kostüm ist weiß und
@@ -530,6 +524,35 @@ sehr glücklich.“
 
 „Ja, vielen Dank, jedem von euch“, sagt der Prinz lächelnd.
 
+
+### Das Erzgebirge
+Das Erzgebirge ist ein Mittelgebirge und liegt an der Grenze zwischen Deutschland und Tschechien im Bundesland Sachsen.
+Sein Name erinnert an Metall. Vor vielen Hundert Jahren haben es die
+Männer a us dem Berg geholt. Als es keins mehr gab, haben sie
+begonnen, mit Holz zu arbeiten. Ihre Figuren sind sehr berühmt: in
+
+Deutschland, in Europa und auf der ganzen Welt. Überall kennt man
+
+den Nussknacker. Er ist eine
+Märchenfigur und hat auch einen
+Komponisten aus Russland,
+Tschaikowski, inspiriert. Er hat
+aus dem Märchen ein Ballett
+gemacht.
+
+Das Spielzeug aus dem
+Erzgebirge ist aus Holz, genau so wie
+der Weihnachtsschmuck. Schon in der
+Zeit vor Weihnachten können wir ihn
+
+in vielen Familien sehen. Im Winter
+stehen in den Wohnzimmern
+Räuchermännchen. Aus dem Mund
+vom Räuchermännchen kommt
+
+dann der Rauch.
+
+
 ## Kapitel 6 - Weihnachtsmorgen
 ie Tänzer sitzen nach der Aufführung alle im
 Thronsaal, unterhalten sich und lachen.
@@ -537,7 +560,7 @@ Thronsaal, unterhalten sich und lachen.
 „Darf ich mit dir tanzen?“, fragt der Prinz.
 „Oh, ja!“, antwortet Clara freudig.
 
-  
+
 
 4/w"'/ Das Orchester beginnt zu spielen, und die beiden
 fangen an zu tanzen. Sie tanzen von einer Ecke in die andere und
