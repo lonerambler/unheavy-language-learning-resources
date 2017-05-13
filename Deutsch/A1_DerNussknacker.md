@@ -14,8 +14,10 @@ Eine Bearbeitung des weltberühmten Märchens von E.T.A. Hoffmann mit
 * Phonetik- und HV—Übungen und sämtlichen Texten auf CD
 * Abschlusstest, zur Wiederholung des Inhalts der Geschichte
 
+---
 [TOC]
 
+---
 ## Hoffmann und Tschaikowski
 ### E.T.A. Hoffmann
 _Nußknacker und Mausekönig_ ist ein Weihnachtsmärchen von E.T.A. Hoffmann. Er schreibt das Märchen 1816 in Berlin. Die
@@ -42,6 +44,7 @@ und Opernhäuser führen es um die Weihnachtszeit auf. In der Version von Dumas 
 * Andere Ballette: _Dornröschen_ (1890), _Der Nußknacker_ (1892)
 * Gestorben: 6. November 1893 in Sankt Petersburg
 
+---
 ## Kapitel 1 - Heiligabend
 Heute ist der 24. Dezember, Heiligabend, in Nürnberg, und es ist sehr kalt. Auf den Dächern und den Straßen liegt
 Schnee. Überall gibt es Märkte mit Spielzeug, Schmuck und Weihnachtssüßigkeiten. Die Leute kaufen Geschenke für
@@ -108,6 +111,7 @@ Er betrachtet den Tannenbaum und sagt: „Euer Weihnachtsbaum ist sehr schön!�
 
 „Ja, aber mein Baum ist sehr klein“, antwortet Herr Drosselmeyer.
 
+---
 ## Kapitel 2 - Der Nussknacker
 Alle stehen neben dem Weihnachtsbaum und blicken Onkel Drosselmeyer an. Er legt viele Geschenke unter den Baum. Clara
 und Fritz betrachten sie und sind sehr aufgeregt.
@@ -182,7 +186,7 @@ Lieblingspuppen schlafen.
 
 „lch hoffe, dass Onkel Drosselmeyer Recht hat“, sagt sie traurig. „Gute Nacht, lieber Nussknacker.“
 
-#### Die Weihnachtszeit in Deutschland
+### Die Weihnachtszeit in Deutschland
 In Deutschland ist Weihnachten sehr wichtig. Im Dezember findet man in allen Städten Weihnachtsmärkte mit
 Weihnachtsbäumen.
 
@@ -212,6 +216,7 @@ Produkte: Nürnberger Lebkuchen, auch Pfefferkuchen genannt, Nürnberger Rostbra
 
 Sehenswürdigkeiten: die Nürnberger Burg, der Hauptmarkt, der Schöne Brunnen
 
+---
 ## Kapitel 3 - Mitternachtszauber
 Nach der Feier sind Clara und Fritz müde und gehen nach oben zu Bett. Aber Clara kann nicht schlafen. Sie denkt an
 ihren Nussknacker und seinen Arm. Der Arm vom Nussknacker ist nämlich gebrochen. Sie ist sehr traurig.
@@ -303,6 +308,7 @@ Mit den Händen hält Clara sich die Augen zu, aber nur für ein paar Sekunden.
 „Ich habe Angst, die Augen aufzumachen”, denkt sie. „Was ist denn hier los? Es ist so laut, und ich rieche Rauch. Wo
 ist mein lieber Nussknacker?”
 
+---
 ## Kapitel 4 - Der Prinz
 Clara hat immer noch die Hände vor den Augen. Der Rauch und das Geräusch sind jetzt weg. Alles ist ruhig.
 
@@ -419,111 +425,79 @@ Clara und lächelt.
 gerufen. Sie sind sehr gut und ihre Kostüme sind wunderschön. Es gibt auch Musik! Und nun, setz dich auf den Thron, und
 viel Spaß!“
 
+---
 ## Kapitel 5 - Das Land der Süßigkeiten
-[le sitzen im Thronsaal. Ein Orchester macht Musik. !
-Die Musik ist sehr schön. Man spielt Violine, Hörner
-und Klavier. Die Aufführung fängt an.
-„Ich erkläre euch jetzt das Programm“, sagt
-Gerhard. „Die Zuckerpflaumen—Fee erscheint als
+Alle sitzen im Thronsaal. Ein Orchester macht Musik. Die Musik ist sehr schön. Man spielt Violine, Hörner und Klavier.
+Die Aufführung fängt an.
 
-Erste.“
+„Ich erkläre euch jetzt das Programm“, sagt Gerhard. „Die Zuckerpflaumen-Fee erscheint als Erste.“
 
+Die Zuckerpflaumen-Fee ist die Lieblingstänzerin vom Prinzen. Sie trägt ein Kostüm und Tanzschuhe. Das Kostüm ist weiß
+und die Tanzschuhe sind rosa. Sie tanzt mit einem Mann. Der Mann ist sehr schön, und auch er hat ein Tänzerkostüm an.
+Es ist blau. Die Musik ist wunderschön, alle schauen auf die Tänzer, hören zu und sind still. Der Tanz geht zu Ende
+und alle klatschen.
 
+„Dieser Tanz ist wunderschön“, sagt Clara und klatscht in die Hände.
 
-Die Zuckerpflaumen-Fee ist die Lieblingstänzerin vom Prinzen.
-Sie trägt ein Kostüm und Tanzschuhe. Das Kostüm ist weiß und
-die Tanzschuhe sind rosa. Sie tanzt mit einem Mann. Der Mann ist
-sehr schön, und auch er hat ein Tänzerkostüm an. Es ist blau. Die
-Musik ist wunderschön, alle schauen auf die Tänzer, hören zu und
-sind still. Der Tanz geht zu Ende und alle klatschen.
+„Ja, die Zuckerpflaumen-Fee tanzt sehr gut“, sagt der Prinz.
 
-„Dieser Tanz ist wunderschön“, sagt Clara und klatscht in die
-Hände.
+„Und jetzt kommt der spanische Tanz“, sagt Gerhard. „Hör dir die Musik aufmerksam an: Sie ist fantastisch.“
 
-„ja, die Zuckerpflaumen—Fee tanzt sehr gut“, sagt der Prinz.
+Es gibt ganz viele Tänzer, Männer und Frauen, und sie kommen aus Spanien. Ihre Haare sind dunkel und die Augen
+schwarz. Die Frauen tragen Röcke und Tanzschuhe. Die Röcke sind lang und rot, und auch die Schuhe sind rot. Die
+Männer tragen Hemden und Hosen. Die Hemden sind weiß und die Hosen schwarz. Sie bewegen sich alle sehr schnell und
+folgen dem Rhythmus von der Musik. Am Ende schenken sie Clara und dem Prinzen Schokolade zum Essen.
 
-„Und jetzt kommt der spanische Tanz“, sagt Gerhard. „Hör dir
-
-die Musik aufmerksam an: Sie ist fantastisch.“
-
-Es gibt ganz viele Tänzer, Männer und Frauen, und sie
-kommen aus Spanien. Ihre Haare sind dunkel und die Augen
-schwarz. Die Frauen tragen Röcke und Tanzschuhe. Die Röcke
-sind lang und rot, und auch die Schuhe sind rot. Die Männer
-tragen Hemden und Hosen. Die Hemden sind weiß und die Hosen
-schwarz. Sie bewegen sich alle sehr schnell und folgen dem
-Rhythmus von der Musik. Am Ende schenken sie Clara und dem
-Prinzen Schokolade zum Essen.
-
-„In Spanien gibt es sehr gute Schokolade“, erklärt einer von
-
-den Tänzern.
+„In Spanien gibt es sehr gute Schokolade“, erklärt einer von den Tänzern.
 
 „Das nächste Stück ist der arabische Tanz“, sagt Gerhard.
 
-Die Tänzer sind Männer und Frauen. Das Kostüm von den
-Frauen ist lang und weiß, und ihre Tanzschuhe sind schwarz. Die
-Hemden und die Hosen von den Männern sind weiß. Die Musik ist
-sehr schön, und die Tänzer bewegen sich langsam. Nach ihrem
-Tanz schenken sie Clara und dem Prinzen Kaffee.
+Die Tänzer sind Männer und Frauen. Das Kostüm von den Frauen ist lang und weiß, und ihre Tanzschuhe sind schwarz. Die
+Hemden und die Hosen von den Männern sind weiß. Die Musik ist sehr schön, und die Tänzer bewegen sich langsam. Nach
+ihrem Tanz schenken sie Clara und dem Prinzen Kaffee.
 
 „Der Kaffee kommt aus Arabien“, erklärt einer von den Tänzern.
 
 „Mir gefällt diese Aufführung", sagt Clara fröhlich.
 
-„Und jetzt kommen die Kosaken. Ihr Tanz heißt der russische
-Tanz“, sagt Gerhard lächelnd.
+„Und jetzt kommen die Kosaken. Ihr Tanz heißt der russische Tanz“, sagt Gerhard lächelnd.
 
-Zehn Männer fangen an zu tanzen und werfen die Beine in die
-Luft. Dann springen sie sehr hoch und drehen sich viele Male um
-sich selbst. Die Kostüme und die Hüte von den Kosaken sind
-bunt. Die Musik ist laut und schnell.
+Zehn Männer fangen an zu tanzen und werfen die Beine in die Luft. Dann springen sie sehr hoch und drehen sich viele
+Male um sich selbst. Die Kostüme und die Hüte von den Kosaken sind bunt. Die Musik ist laut und schnell.
 
 „Sie haben etwas Magisches“, sagt Clara.
 
 „Sie sind magisch“, sagt der Prinz. „Schau, wie sie tanzen!“
 
-Nach dem Tanz schenken die Kosaken Clara und dem Prinzen
+Nach dem Tanz schenken die Kosaken Clara und dem Prinzen Pfefferminzstäbchen. Sie sind rot und weiß.
 
-Pfefferminzstäbchen. Sie sind rot und weiß.
-
-„Diese Pfefferminzstäbchen sind ein Geschenk für euch“, sagt
-
-einer von den Tänzern.
+„Diese Pfefferminzstäbchen sind ein Geschenk für euch“, sagt einer von den Tänzern.
 
 „Und jetzt kommt der chinesische Tanz“, sagt Gerhard.
 
-In dieser Gruppe gibt es nur Frauen, und der Tanz ist
-wunderschön. Die Kostüme von den Chinesinnen sind rot und
-golden, und die Musik ist bezaubernd schön. Sie tanzen durch
-den ganzen Thronsaal. Dann schenken die Frauen Clara und dem
-Prinzen Schachteln aus Holz. In den Schachteln ist Tee.
+In dieser Gruppe gibt es nur Frauen, und der Tanz ist wunderschön. Die Kostüme von den Chinesinnen sind rot und
+golden, und die Musik ist bezaubernd schön. Sie tanzen durch den ganzen Thronsaal. Dann schenken die Frauen
+Clara und dem Prinzen Schachteln aus Holz. In den Schachteln ist Tee.
 
-„Wir haben Tee für euch aus China mitgebracht; der Tee in
-unserem Land ist grün und schwarz“, sagt eine von den
-
+„Wir haben Tee für euch aus China mitgebracht; der Tee in unserem Land ist grün und schwarz“, sagt eine von den
 Tänzerinnen. „In China trinken wir viel Tee.“
 
-„Der Blumenwalzer ist das letzte Stück für heute Abend”, sagt
-Gerhard. Das Orchester fängt an zu spielen. Die Musik ist sanft.
-Zwanzig Tänzer kommen in den Thronsaal. Sie tragen Kostüme in
-verschiedenen Farben, und sie fangen an zu tanzen.
+„Der Blumenwalzer ist das letzte Stück für heute Abend”, sagt Gerhard. Das Orchester fängt an zu spielen. Die Musik
+ist sanft. Zwanzig Tänzer kommen in den Thronsaal. Sie tragen Kostüme in verschiedenen Farben, und sie fangen an zu
+tanzen.
 
 „Die Tänzer sehen wie Blumen aus“, sagt Clara.
 
-„ja, das stimmt“, sagt der Prinz.
+„Ja, das stimmt“, sagt der Prinz.
 
-Nach dem Tanz schenkt jeder Tänzer Clara und dem Prinzen
-eine Blume aus Süßkirschen und Schokolade.
+Nach dem Tanz schenkt jeder Tänzer Clara und dem Prinzen eine Blume aus Süßkirschen und Schokolade.
 
 „Willkommen im Land der Süßigkeiten“, sagen sie.
 
-„Vielen Dank“, antwortet Clara. „Ich bedanke mich für die
-Aufführung und die Geschenke. Alles ist wunderschön. Ich bin
+„Vielen Dank“, antwortet Clara. „Ich bedanke mich für die Aufführung und die Geschenke. Alles ist wunderschön. Ich bin
 sehr glücklich.“
 
 „Ja, vielen Dank, jedem von euch“, sagt der Prinz lächelnd.
-
 
 ### Das Erzgebirge
 Das Erzgebirge ist ein Mittelgebirge und liegt an der Grenze zwischen Deutschland und Tschechien im Bundesland Sachsen.
@@ -552,7 +526,7 @@ vom Räuchermännchen kommt
 
 dann der Rauch.
 
-
+---
 ## Kapitel 6 - Weihnachtsmorgen
 ie Tänzer sitzen nach der Aufführung alle im
 Thronsaal, unterhalten sich und lachen.
