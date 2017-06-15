@@ -1,52 +1,53 @@
 # Die Nachbarn
 
-Georgs Nachbarin ist unter nicht ganz klaren Umständen gestorben. War es Mord? Georg geht der Sache auf eigene Faust
-nach - und gerät in eine gefährliche Situation.
+Georgs Nachbarin ist unter nicht ganz klaren Umständen gestorben. War es Mord? Georg geht der Sache
+auf eigene Faust nach - und gerät in eine gefährliche Situation.
 
 Diese spannende Detektivgeschichte ist auch für Anfänger schon leicht zu lesen.
 
-Die zahlreichen Übungen, welche die einzelnen Kapitel abschließen, helfen dem Deutschlerner, sein sprachliches Wissen
-und Können zu überprüfen und zu erweitern.
+Die zahlreichen Übungen, welche die einzelnen Kapitel abschließen, helfen dem Deutschlerner, sein
+sprachliches Wissen und Können zu überprüfen und zu erweitern.
 
-Die CD enthält nicht nur den kompletten Text, sondern auch eine Reihe von ergänzenden Hörverständnisübungen.
+Die CD enthält nicht nur den kompletten Text, sondern auch eine Reihe von ergänzenden
+Hörverständnisübungen.
 
 ---
 [TOC]
 
 ---
 ## Kapitel 1 - Georg
-Das ist Freiburg, eine schöne Stadt im Süden Deutschlands, in der Nähe vom Schwarzwald. Georg wohnt hier. Georg ist
-fünfzehn Jahre alt. Er ist groß für sein Alter, hat rote Haare und blaue Augen.
+Das ist Freiburg, eine schöne Stadt im Süden Deutschlands, in der Nähe vom Schwarzwald. Georg wohnt
+hier. Georg ist fünfzehn Jahre alt. Er ist groß für sein Alter, hat rote Haare und blaue Augen.
 
-Die meisten Mädchen finden ihn hübsch, aber das ist ihm egal. Ihn interessiert nur, was mit Verbrechen zu tun hat. In
-den letzten zwei Jahren hat er über zweihundert Krimis gelesen und ungefähr genauso viele Kriminalfilme gesehen. In
-seinem Bücherregal stehen neben den Klassikern Agatha Christie, Simenon und Chandler auch Krimis nicht so berühmter
-Autoren.
+Die meisten Mädchen finden ihn hübsch, aber das ist ihm egal. Ihn interessiert nur, was mit
+Verbrechen zu tun hat. In den letzten zwei Jahren hat er über zweihundert Krimis gelesen und
+ungefähr genauso viele Kriminalfilme gesehen. In seinem Bücherregal stehen neben den Klassikern
+Agatha Christie, Simenon und Chandler auch Krimis nicht so berühmter Autoren.
 
 Neben dem Regal liegt immer das Handbuch: „Wie du ein tüchtiger Detektiv wirst.“
 
-Wenn er groß ist, will Georg natürlich Detektiv oder Polizist werden. Seinen Eltern hat er das schon oft gesagt. Und
-was hat seine Mutter dazu gemeint?
+Wenn er groß ist, will Georg natürlich Detektiv oder Polizist werden. Seinen Eltern hat er das
+schon oft gesagt. Und was hat seine Mutter dazu gemeint?
 
 „Ja, ja, Georg. Das sind doch Träumereien. Die Wirklichkeit sieht anders aus.“
 
 Sein Vater ist sogar böse geworden:
 
-„Du solltest mehr an die Schule denken, Georg. Und nicht immer diese idiotischen Filme im Fernsehen sehen.“ Niemand
-versteht ihn in dieser Familie. Armer Georg!
+„Du solltest mehr an die Schule denken, Georg. Und nicht immer diese idiotischen Filme im Fernsehen
+sehen.“ Niemand versteht ihn in dieser Familie. Armer Georg!
 
-Georg hat eine Schwester. Sie heißt Ute. Sie ist fünf. Georg mag sie gern, aber er findet sie oft langweilig. Sie will
-immer spielen, aber Georg hat keine Zeit und keine Lust.
+Georg hat eine Schwester. Sie heißt Ute. Sie ist fünf. Georg mag sie gern, aber er findet sie oft
+langweilig. Sie will immer spielen, aber Georg hat keine Zeit und keine Lust.
 
 Gestern hat seine Mutter gesagt:
 
-„Georg, morgen Abend wollen dein Vater und ich ins Theater gehen. Seit Monaten sehe ich nur noch den Supermarkt. Wir
-gehen ja praktisch nie aus. Da können wir doch einmal...“
+„Georg, morgen Abend wollen dein Vater und ich ins Theater gehen. Seit Monaten sehe ich nur noch
+den Supermarkt. Wir gehen ja praktisch nie aus. Da können wir doch einmal...“
 
 Und Georg? Georg war im siebten Himmel. Er dachte:
 
-„Ist das schön! Die ganze Wohnung für mich allein. Essen was ich will und wann ich Will. Den großen Fernseher für
-mich...“
+„Ist das schön! Die ganze Wohnung für mich allein. Essen was ich will und wann ich Will. Den großen
+Fernseher für mich...“
 
 Seiner Mutter hat er gesagt:
 
@@ -56,25 +57,27 @@ Seiner Mutter hat er gesagt:
 
 „Klar doch!“
 
-So ist Georg heute also (fast) allein zu Hause. Seine Eltern sind vor dem Abendessen aus dem Haus gegangen - die
-Vorstellung fängt um acht an. Das Abendessen steht schon fertig auf dem Küchentisch: Wurst, Brot, eine Flasche
-Mineralwasser und Pudding. Aber er hat keine Lust, sowas Banales zu essen. Er holt Popcorn, Kartoffelchips und zwei
-Dosen Cola aus dem Küchenschrank und pflanzt sich vor den Fernseher. „Aaah, das nenn' ich Leben!“
+So ist Georg heute also (fast) allein zu Hause. Seine Eltern sind vor dem Abendessen aus dem Haus
+gegangen - die Vorstellung fängt um acht an. Das Abendessen steht schon fertig auf dem Küchentisch:
+Wurst, Brot, eine Flasche Mineralwasser und Pudding. Aber er hat keine Lust, sowas Banales zu
+essen. Er holt Popcorn, Kartoffelchips und zwei Dosen Cola aus dem Küchenschrank und pflanzt sich
+vor den Fernseher. „Aaah, das nenn' ich Leben!“
 
-Im Fernsehen gibt's „Die Akte X“, eine seiner Lieblingsserien. Seine kleine Schwester setzt sich neben ihn, aber nach
-einer halben Stunde ist sie schon eingeschlafen. Während der Reklame geht Georg in die Küche, um sich noch mehr
-Fressalien zu holen. Da hört er ein Geräusch. Es kommt aus der Nachbarwohnung: er hört etwas fallen, einen kurzen
-Schrei und dann nichts mehr.
+Im Fernsehen gibt's „Die Akte X“, eine seiner Lieblingsserien. Seine kleine Schwester setzt sich
+neben ihn, aber nach einer halben Stunde ist sie schon eingeschlafen. Während der Reklame geht
+Georg in die Küche, um sich noch mehr Fressalien zu holen. Da hört er ein Geräusch. Es kommt aus
+der Nachbarwohnung: er hört etwas fallen, einen kurzen Schrei und dann nichts mehr.
 
-„Na sowas“, denkt Georg. Aber während er sich ein Brot mit Nutella schmiert, hört er wieder Geräusche.
+„Na sowas“, denkt Georg. Aber während er sich ein Brot mit Nutella schmiert, hört er wieder
+Geräusche.
 
-„Das werden unsere Nachbarn sein“, denkt er und geht an die Tür. Er guckt durch den Türspion: ein Mann, sein Nachbar,
-steht an der Tür und schaut, ob jemand da ist.
+„Das werden unsere Nachbarn sein“, denkt er und geht an die Tür. Er guckt durch den Türspion: ein
+Mann, sein Nachbar, steht an der Tür und schaut, ob jemand da ist.
 
 „Eigenartig“, sagt Georg zu sich selbst. „Was da wohl los ist?“
 
-Da klingelt das Telefon: es ist (natürlich) seine Mutter, die fragt, ob alles in Ordnung ist. Dann sagt sie noch, dass
-sie nicht vor Mitternacht zu Hause sein werden.
+Da klingelt das Telefon: es ist (natürlich) seine Mutter, die fragt, ob alles in Ordnung ist. Dann
+sagt sie noch, dass sie nicht vor Mitternacht zu Hause sein werden.
 
 „Okay. Okay. Kein Problem.“ sagt Georg.
 
@@ -82,123 +85,72 @@ Er geht wieder an die Tür. Aber er hört nichts mehr. Und der Nachbar steht auc
 
 ---
 ## Kapitel 2 - Die Nachbarn
-Herr und Frau Beier sind seit vier Jahren
-Georgs Nachbarn. Frau Beier ist vielleicht 50
-Jahre alt. Sie ist sehr klein, dünn und hat
-graue Haare. Schön ist sie nicht, aber sie ist
-immer sehr nett zu Georg und seiner Schwester. Vor einigen
-Jahren schenkte sie Georg immer Schokolade. Jetzt schenkt sie
-nur noch seiner Schwester welche. Aber letztes Jahr hat sie
-ihm zu Weihnachten einen Krimi geschenkt, den er noch nicht
-kannte. Daher weiß er, dass Frau Beier und er etwas
-gemeinsam haben 1: die Leidenschaft 2 für Detektivromane.
+Herr und Frau Beier sind seit vier Jahren Georgs Nachbarn. Frau Beier ist vielleicht 50 Jahre alt.
+Sie ist sehr klein, dünn und hat graue Haare. Schön ist sie nicht, aber sie ist immer sehr nett zu
+Georg und seiner Schwester. Vor einigen Jahren schenkte sie Georg immer Schokolade. Jetzt schenkt
+sie nur noch seiner Schwester welche. Aber letztes Jahr hat sie ihm zu Weihnachten einen Krimi
+geschenkt, den er noch nicht kannte. Daher weiß er, dass Frau Beier und er etwas gemeinsam haben:
+die Leidenschaft für Detektivromane.
 
-Herr Beier ist jünger als sie. Er muss so um die 40 sein.
+Herr Beier ist jünger als sie. Er muss so um die 40 sein. Er ist nicht schön, aber er findet sich
+sehr schön. Von Beruf ist er Angestellter, aber er verbringt viel Zeit im Sportclub, wo er
+Bodybuilding macht. Er hat so viele Muskeln wie Schwarzenegger. Herr Beier spricht immer mit
+schönen Frauen aus der Nachbarschaft, auch mit Georgs Mutter. Georg mag ihn nicht, und er mag Georg
+nicht. Wenn man Herrn und Frau Beier auf der Straße trifft, ist Herr Beier immer sehr nett zu ihr.
+Aber wenn sie zu Hause sind, hört Georg sie immer streiten. Georgs Zimmer liegt direkt neben ihrem
+Schlafzimmer.
 
-Er ist nicht schön, aber er findet sich sehr schön. Von
-Beruf ist er Angestellter, aber er verbringt viel Zeit im
-Sportclub, wo er Bodybuilding macht. Er hat so
+Einmal hatten Georg und seine Mutter Herrn Beier vor den Garagen getroffen. Er hatte eine
+Bierflasche in der Hand. Es war klar, dass er ein bißchen betrunken war. Er hat zu Georgs Mutter
+gesagt:
 
-viele Muskeln wie Schwarzenegger. Herr Beier
-
-spricht immer mit schönen Frauen aus der
-Nachbarschaft, auch mit Georgs Mutter. Georg
-
-mag ihn nicht, und er mag Georg nicht. Wenn
-
-man Herrn und Frau Beier auf der Straße trifft,
-
-ist Herr Beier immer sehr nett zu ihr. Aber wenn
-
-sie zu Hause sind, hört Georg sie
-
-immer streiten. Georgs Zimmer
-
-liegt direkt neben ihrem Schlafzimmer.
-
-Einmal hatten Georg und seine Mutter Herrn Beier vor
-den Garagen getroffen. Er hatte eine Bierflasche in der
-Hand. Es war klar, dass er ein bißchen betrunken1 war. Er
-hat zu Georgs Mutter gesagt:
-
-„Ein schöner Tag heute, aber wenn ich Sie sehe, wird er
-noch schöner, Frau Schnabel.“
+„Ein schöner Tag heute, aber wenn ich Sie sehe, wird er noch schöner, Frau Schnabel.“
 
 Seine Mutter hat nicht geantwortet. Georg hat gesagt:
 
-„Was der für Augen hat. 80 kleine Schweinsaugen. Ich
-glaube, das ist ein ganz schweinischer Typ.“
+„Was der für Augen hat. So kleine Schweinsaugen. Ich glaube, das ist ein ganz schweinischer Typ.“
 
 Seine Mutter ist böse geworden, wie immer:
 
 „Was sagst du denn da?! Georg!“
 
-Aber Georg wusste, dass auch seine Mutter so dachte
+Aber Georg wusste, dass auch seine Mutter so dachte wie er und dass auch ihr Herr Beier gar nicht
+gefiel.
 
-wie er und dass auch ihr Herr Beier gar nicht gefiel.
+Am nächsten Morgen steht Georg wie immer um halb sieben auf. Die Schule fängt um acht Uhr an. Er
+muss frühstücken und den Bus nehmen. Er braucht eine Dreiviertelstunde, um zur Schule zu kommen.
+Georgs Eltern haben eine große Wohnung in einem Wohnhaus in einem kleinen Dorf etwas außerhalb
+Freiburgs: Stapfen. Georg wohnt dort gar nicht gern. Alles ist so weit weg und es gibt in dem Dorf
+kein Kino und keine Diskothek. Es gibt nur ein Café, wo alte Leute Kuchen essen, und eine Kneipe,
+wo alte Leute abends ihr Bier trinken. Georg sagt immer:
 
-Am nächsten Morgen steht Georg wie immer um halb
-sieben auf. Die Schule fängt um acht Uhr an. Er muss
-frühstücken und den Bus nehmen. Er braucht eine
-Dreiviertelstunde, um zur Schule zu kommen.
+„Mit achtzehn, wenn ich mit der Schule fertig bin, will ich in die Stadt...“
 
-Georgs Eltern haben eine große Wohnung
-in einem Wohnhaus in einem kleinen
-Dorf etwas außerhalb 1 Freiburgs:
-Stapfen. Georg wohnt dort gar nicht
-gern. Alles ist so weit weg und es gibt
-in dem Dorf kein Kino und keine
-Diskothek. Es gibt nur ein Café, wo
-alte Leute Kuchen essen, und eine
-Kneipe 2, wo alte Leute abends ihr
+Morgens trinkt Georg Milchkaffee und isst ein Käsebrötchen. Sonst steht das Frühstück immer schon
+fertig auf dem Tisch. Heute ist der Tisch leer. Seine Mutter ist nicht in der Küche. Wo sie bloß
+ist? Sie ist im Wohnzimmer und spricht mit Frau Pampe. Frau Pampe ist die Nachbarin von unten. Sie
+sagt gerade:
 
-Bier trinken. Georg sagt immer:
-
-„Mit achtzehn, wenn ich mit der
-Schule fertig bin, will ich in die Stadt...“
-
-Morgens trinkt Georg Milchkaffee und isst ein
-Käsebrötchen. Sonst 3 steht das Frühstück immer schon
-fertig auf dem Tisch. Heute ist der Tisch leer. Seine Mutter
-ist nicht in der Küche. Wo sie bloß ist? Sie ist im
-Wohnzimmer und spricht mit Frau Pampe. Frau Pampe ist
-die Nachbarin von unten. Sie sagt gerade:
-
-„Sie ist heute Morgen um halb sechs gestorben.
-
-Sie hat sich schlecht gefühlt und ihr Mann hat sofort
-den Arzt gerufen, aber es war zu spät...“
+„Sie ist heute Morgen um halb sechs gestorben. Sie hat sich schlecht gefühlt und ihr Mann hat
+sofort den Arzt gerufen, aber es war zu spät...“
 
 Seine Mutter meint:
 
-„Oh, die arme Frau. Wie ist sie denn gestorben, wissen
-Sie das?“ „Sie soll einen Herzschlag 1 bekommen haben.“
+„Oh, die arme Frau. Wie ist sie denn gestorben, wissen Sie das?“ „Sie soll einen Herzschlag
+bekommen haben.“
 
 „Ach, die Arme, wie alt war sie denn eigentlich?“
 
-„Ich glaube, fünfzig. So jung schon sterben, ach, die
-Arme!“ Georg hört aufmerksam 2 zu. Wenn Frau Beier sich
-früh morgens schlecht gefühlt hat, was hat er
-dann am Abend zuvor gehört? Es hat
-natürlich keinen Zweck 3, darüber
-mit seiner Mutter zu sprechen.
+„Ich glaube, fünfzig. So jung schon sterben, ach, die Arme!“ Georg hört aufmerksam zu. Wenn Frau
+Beier sich früh morgens schlecht gefühlt hat, was hat er dann am Abend zuvor gehört? Es hat
+natürlich keinen Zweck, darüber mit seiner Mutter zu sprechen. Sie würde ihm gar nicht zuhören.
+Also will Georg der Sache auf eigene Faust nachgehen. Da stimmt doch etwas nicht! Und wenn... wenn
+Frau Beier ermordet worden ist?
 
-Sie würde ihm gar nicht
-zuhören. Also will Georg der
-Sache auf eigene Faust 4
-nachgehen. Da stimmt doch
-etwas nicht 5! Und
-wenn... wenn Frau Beier
-
-ermordet 6 worden ist?
-
-## Kapitel
-
-Geoxgs Nachforschungen
-
-eorg will nicht in die Schule. Er Will sehen,
-was passiert. Als er hinausgehen will, sieht
-er, dass Beiers Wohnungstür offensteht.
+---
+## Kapitel 3 - Georgs Nachforschungen
+Georg will nicht in die Schule. Er will sehen, was passiert. Als er hinausgehen will, sieht er,
+dass Beiers Wohnungstür offensteht.
 Herr Beier steht in der Tür und spricht mit
 den Nachbarn. Er sieht traurig aus, aber Georg sagt nichts und
 sieht ihn böse an. Er glaubt nicht, dass er traurig ist. Georg
