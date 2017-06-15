@@ -1,9 +1,10 @@
 # Der Nussknacker
 E.T.A. Hoffmann
 
-Im Nürnberg des XIX. Jahrhunderts bringt Onkel Drosselmeyer am Heiligabend allen Geschenke. Klara bekommt ein ganz
-besonderes, einen Nussknacker. Während der Nacht werden die Spielsachen lebendig, und Klara merkt, dass der Nussknacker
-viel mehr ist als nur ein Spielzeug. Es fehlt nicht an Überraschungen...
+Im Nürnberg des XIX. Jahrhunderts bringt Onkel Drosselmeyer am Heiligabend allen Geschenke. Klara
+bekommt ein ganz besonderes, einen Nussknacker. Während der Nacht werden die Spielsachen lebendig,
+und Klara merkt, dass der Nussknacker viel mehr ist als nur ein Spielzeug. Es fehlt nicht an
+Überraschungen...
 
 Eine Bearbeitung des weltberühmten Märchens von E.T.A. Hoffmann mit
 
@@ -500,80 +501,54 @@ sehr glücklich.“
 „Ja, vielen Dank, jedem von euch“, sagt der Prinz lächelnd.
 
 ### Das Erzgebirge
-Das Erzgebirge ist ein Mittelgebirge und liegt an der Grenze zwischen Deutschland und Tschechien im Bundesland Sachsen.
-Sein Name erinnert an Metall. Vor vielen Hundert Jahren haben es die
-Männer a us dem Berg geholt. Als es keins mehr gab, haben sie
-begonnen, mit Holz zu arbeiten. Ihre Figuren sind sehr berühmt: in
+Das Erzgebirge ist ein Mittelgebirge und liegt an der Grenze zwischen Deutschland und Tschechien
+im Bundesland Sachsen. Sein Name erinnert an Metall. Vor vielen Hundert Jahren haben es die Männer
+aus dem Berg geholt. Als es keins mehr gab, haben sie begonnen, mit Holz zu arbeiten. Ihre Figuren
+sind sehr berühmt: in Deutschland, in Europa und auf der ganzen Welt. Überall kennt man den
+Nussknacker. Er ist eine Märchenfigur und hat auch einen Komponisten aus Russland, Tschaikowski,
+inspiriert. Er hat aus dem Märchen ein Ballett gemacht.
 
-Deutschland, in Europa und auf der ganzen Welt. Überall kennt man
-
-den Nussknacker. Er ist eine
-Märchenfigur und hat auch einen
-Komponisten aus Russland,
-Tschaikowski, inspiriert. Er hat
-aus dem Märchen ein Ballett
-gemacht.
-
-Das Spielzeug aus dem
-Erzgebirge ist aus Holz, genau so wie
-der Weihnachtsschmuck. Schon in der
-Zeit vor Weihnachten können wir ihn
-
-in vielen Familien sehen. Im Winter
-stehen in den Wohnzimmern
-Räuchermännchen. Aus dem Mund
-vom Räuchermännchen kommt
-
-dann der Rauch.
+Das Spielzeug aus dem Erzgebirge ist aus Holz, genau so wie der Weihnachtsschmuck. Schon in der
+Zeit vor Weihnachten können wir ihn in vielen Familien sehen. Im Winter stehen in den Wohnzimmern
+Räuchermännchen. Aus dem Mund vom Räuchermännchen kommt dann der Rauch.
 
 ---
 ## Kapitel 6 - Weihnachtsmorgen
-ie Tänzer sitzen nach der Aufführung alle im
-Thronsaal, unterhalten sich und lachen.
+Die Tänzer sitzen nach der Aufführung alle im Thronsaal, unterhalten sich und lachen.
 
 „Darf ich mit dir tanzen?“, fragt der Prinz.
+
 „Oh, ja!“, antwortet Clara freudig.
 
+Das Orchester beginnt zu spielen, und die beiden fangen an zu tanzen. Sie tanzen von einer Ecke in
+die andere und wieder zurück. Sie lachen und tanzen.
 
-
-4/w"'/ Das Orchester beginnt zu spielen, und die beiden
-fangen an zu tanzen. Sie tanzen von einer Ecke in die andere und
-wieder zurück. Sie lachen und tanzen.
-
-Die Musik geht zu Ende, und Clara und der Prinz setzen sich
-auf den Thron. Clara ist sehr müde und schafft es nicht, die
-Augen offen zu halten. Auf einmal schläft sie ein.
+Die Musik geht zu Ende, und Clara und der Prinz setzen sich auf den Thron. Clara ist sehr müde und
+schafft es nicht, die Augen offen zu halten. Auf einmal schläft sie ein.
 
 Man hört ein Geräusch an der Tür.
 
 „Clara“, sagt jemand. „Clara, schläfst du? Komm, wach auf!“
 
-Clara wird wach. Sie sitzt neben dem Weihnachtsbaum im
-Wohnzimmer.
+Clara wird wach. Sie sitzt neben dem Weihnachtsbaum im Wohnzimmer.
 
-„Wo bin ich?“, fragt sie halb_wach. „Was ist mit mir passiert?
-Wo ist der Prinz?“ Sie schaut sich im Wohnzimmer um. Aber
-niemand ist da.
+„Wo bin ich?“, fragt sie halb_wach. „Was ist mit mir passiert? Wo ist der Prinz?“ Sie schaut sich
+im Wohnzimmer um. Aber niemand ist da.
 
 „Clara“, sagt jemand noch einmal. „Clara, wach auf!“
 
-Onkel Drosselmeyer macht die Tür zum Wohnzimmer auf und
+Onkel Drosselmeyer macht die Tür zum Wohnzimmer auf und kommt herein.
 
-kommt herein.
+„Guten Morgen, Clara!“, sagt er fröhlich. „Was machst du hier am Weihnachtsmorgen?“
 
-„Guten Morgen, Claral“, sagt er fröhlich. „Was machst du hier
-am Weihnachtsmorgen?“
-
-„Oh... es ist Weihnachtsmorgenl“‚ sagt Clara überrascht.
-„Frohe Weihnachten, Onkel Drosselmeyer.“
+„Oh... es ist Weihnachtsmorgen!“‚ sagt Clara überrascht. „Frohe Weihnachten, Onkel Drosselmeyer.“
 
 „Frohe Weihnachten, Clara!“‚ antwortet Onkel Drosselmeyer.
 
-Clara schaut zum Weihnachtsbaum und sieht sich im
-Wohnzimmer um. Es ist leer. Sie blickt aus dem Fenster: Es schneit.
+Clara schaut zum Weihnachtsbaum und sieht sich im Wohnzimmer um. Es ist leer. Sie blickt aus dem
+Fenster: Es schneit.
 
-„Das ist nicht der Thronsaal“, denkt sie. „Wo sind die Tänzer,
-und wo ist der Prinz?“
+„Das ist nicht der Thronsaal“, denkt sie. „Wo sind die Tänzer, und wo ist der Prinz?“
 
 Alles ist still.
 
@@ -581,30 +556,26 @@ Alles ist still.
 
 „Ein Traum?“, fragt Onkel Drosselmeyer.
 
-Clara weiß nicht, was sie sagen soll. Sie wird rot im Gesicht
-und ist traurig.
+Clara weiß nicht, was sie sagen soll. Sie wird rot im Gesicht und ist traurig.
 
-„Ja, ein Traum — ein wunderschöner Traum vom Land der
-Süßigkeiten, und der Nussknacker war ein Prinz. Die Musik war
-so schön und die Tänzer so gut!“, sagt Clara.
+„Ja, ein Traum — ein wunderschöner Traum vom Land der Süßigkeiten, und der Nussknacker war ein
+Prinz. Die Musik war so schön und die Tänzer so gut!“, sagt Clara.
 
-„Vielleicht war das alles nicht nur ein Traum“, sagt Onkel
-Drosselmeyer und schaut zur Wohnzimmertür.
+„Vielleicht war das alles nicht nur ein Traum“, sagt Onkel Drosselmeyer und schaut zur
+Wohnzimmertür.
 
-Clara dreht sich um und blickt zur Tür. Und wen sieht sie da?
-Den Nussknackerprinzen!
+Clara dreht sich um und blickt zur Tür. Und wen sieht sie da? Den Nussknackerprinzen!
 
 „Frohe Weihnachten, Clara“, sagt der Prinz.
 
-„Oh! Dann ist es kein Trauml“, sagt Clara glücklich.
+„Oh! Dann ist es kein Traum!“, sagt Clara glücklich.
 
-„Nein, Clara, ich bin ein echter Prinz“, sagt er, und lächelt ihr
-zu.
+„Nein, Clara, ich bin ein _echter_ Prinz“, sagt er, und lächelt ihr zu.
 
-„lch freue mich so sehr, dass du echt bist“, sagt Clara.
+„Ich freue mich so sehr, dass du echt bist“, sagt Clara.
 
-„Und ich bin der Onkel von dem Prinzen“, sagt Drosselmeyer
-zufrieden. „Das ist ein magischer Weihnachtstag für alle!“
+„Und ich bin der Onkel von dem Prinzen“, sagt Drosselmeyer zufrieden. „Das ist ein magischer
+Weihnachtstag für alle!“
 
-„ja, das stimmt!“‚ sagen Clara und der Prinz lächelnd.
+„Ja, das stimmt!“‚ sagen Clara und der Prinz lächelnd.
 
