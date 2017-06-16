@@ -150,96 +150,61 @@ Frau Beier ermordet worden ist?
 ---
 ## Kapitel 3 - Georgs Nachforschungen
 Georg will nicht in die Schule. Er will sehen, was passiert. Als er hinausgehen will, sieht er,
-dass Beiers Wohnungstür offensteht.
-Herr Beier steht in der Tür und spricht mit
-den Nachbarn. Er sieht traurig aus, aber Georg sagt nichts und
-sieht ihn böse an. Er glaubt nicht, dass er traurig ist. Georg
-geht aus dem Haus. Er geht in das Café gegenüber und wartet.
-Er sieht seine Mutter mit seiner Schwester aus dem Haus
-kommen. Sie bringt sie in den Kindergarten.
-„Gut“, denkt Georg, „dann kann ich in ein paar Minuten
-wieder reingehen.“
-Er wartet noch zehn Minuten. Dann geht er zurück in die
-Wohnung. Er stellt sich in der Nähe der Tür auf. Er wartet
+dass Beiers Wohnungstür offensteht. Herr Beier steht in der Tür und spricht mit den Nachbarn. Er
+sieht traurig aus, aber Georg sagt nichts und sieht ihn böse an. Er glaubt nicht, dass er traurig
+ist. Georg geht aus dem Haus. Er geht in das Café gegenüber und wartet. Er sieht seine Mutter mit
+seiner Schwester aus dem Haus kommen. Sie bringt sie in den Kindergarten.
 
-eine halbe Stunde, eine Stunde... Georg liest in einem Comic
+„Gut“, denkt Georg, „dann kann ich in ein paar Minuten wieder reingehen.“
 
-und langweilt sich. Er muss immer an einen Satz aus seinem
-„Handbuch für den tüchtigen Detektiv“ denken:
+Er wartet noch zehn Minuten. Dann geht er zurück in die Wohnung. Er stellt sich in der Nähe der Tür
+auf. Er wartet eine halbe Stunde, eine Stunde... Georg liest in einem Comic und langweilt sich. Er
+muss immer an einen Satz aus seinem „Handbuch für den tüchtigen Detektiv“ denken:
 
-„Glaubt nicht, dass die Arbeit eines Detektivs immer
-interessant ist. Die meiste Zeit verbringt er mit Warten.“
+„Glaubt nicht, dass die Arbeit eines Detektivs immer interessant ist. Die meiste Zeit verbringt er
+mit Warten.“
 
-Da! Er hört, dass Herr Beier aus der Wohnung kommt. Er
-trägt einen schwarzen Müllbeutel. Ein paar Minuten später
-kommt er zurück. „Das ist doch absurd“, denkt Georg, „wie
-kann er an den Müll denken, wo seine Frau gerade
-gestorben ist?“
+Da! Er hört, dass Herr Beier aus der Wohnung kommt. Er trägt einen schwarzen Müllbeutel. Ein paar
+Minuten später kommt er zurück. „Das ist doch absurd“, denkt Georg, „wie kann er an den Müll
+denken, wo seine Frau gerade gestorben ist?“
 
-Georg geht in den Hof hinunter, wo die Mülltonnen 1
-stehen. Niemand da. Er hat Glück. Es gibt nur zwei
-Müllbeutel 2 und nur einer ist schwarz. Das muss der
-Beutel sein, den Herr Beier nach unten gebracht hat. Er
-macht den Sack auf und findet darin einen halben Fisch,
-zwei leere Milchflaschen, eine alte Zeitung, einen Schuh
-und: einen durchsichtigen 3 Plastikbeutel mit Spuren 4
+Georg geht in den Hof hinunter, wo die Mülltonnen stehen. Niemand da. Er hat Glück. Es gibt nur
+zwei Müllbeutel und nur einer ist schwarz. Das muss der Beutel sein, den Herr Beier nach unten
+gebracht hat. Er macht den Sack auf und findet darin einen halben Fisch, zwei leere Milchflaschen,
+eine alte Zeitung, einen Schuh und: einen durchsichtigen Plastikbeutel mit Spuren eines weißen
+Pulvers. Ein Medikament?
 
-eines weißen Pulvers. Ein Medikament?
+Am Nachmittag ruft er Hans an, seinen besten Freund. Hans ist acht Monate älter als er. Er wohnt im
+Haus nebenan. Sie waren schon zusammen in den Kindergarten gegangen. Hans ist sehr intelligent und
+gut in der Schule. Hans ist kein Krimi-Fanatiker wie Georg. Er liest lieber Science-Fiction-Romane.
+Er weiß viel über Planeten, UFOs und übernatürliche Phänomene. Er will Wissenschaftler werden. Aber
+was Georg erzählt, interessiert ihn auch.
 
-Am Nachmittag ruft er Hans an, seinen besten Freund.
-Hans ist acht Monate älter als er. Er wohnt im Haus
-nebenan. Sie waren schon zusammen in den Kindergarten
-gegangen. Hans ist sehr intelligent und gut in der Schule.
+„Das sehe ich auch so wie du. Der Beier hat seine Frau ermordet und da muss man etwas tun. Du musst
+zur Polizei gehen und alles erzählen.“
 
-Hans ist kein Krimi-Fanatiker wie Georg. Er liest lieber
-
-Science-Fiction-Romane. Er weiß viel über Planeten, UFOS
-und übernatürliche Phänomene. Er will Wissenschaftler 1
-werden. Aber was Georg erzählt,
-interessiert ihn auch.
-
-„Das sehe ich auch so wie du. Der
-Beier hat seine Frau ermordet und da
-muss man etwas tun. Du musst zur
-Polizei gehen und alles erzählen.“
-„Die glauben mir doch
-nicht, Hans! Ich habe
-keine Beweise 2, und
-
-außerdem bin ich für die doch noch ein Kind.“
+„Die glauben mir doch nicht, Hans! Ich habe keine Beweise, und außerdem bin ich für die doch noch
+ein Kind.“
 
 Aber Hans läßt nicht locker:
 
-„Du hast zwei Indizien. Du hast in der Nacht einen
-Schrei gehört und du hast den Beier einen Beutel
-wegwerfen 3 sehen, in dern vielleicht Gift 4 war.“
+„Du hast zwei Indizien. Du hast in der Nacht einen Schrei gehört und du hast den Beier einen Beutel
+wegwerfen sehen, in dern vielleicht Gift war.“
 
-„Ich möchte noch auf eigene Faust weitersuchen“ sagt
-Georg. Aber Hans will das nicht:
+„Ich möchte noch auf eigene Faust weitersuchen“ sagt Georg. Aber Hans will das nicht:
 
-„Nein. Das ist gefährlich. Wenn der Typ wirklich seine
-Frau umgebracht 5 hat, ist das gefährlich. Geh zur Polizei...
-Versuch’s wenigstens mal!“
+„Nein. Das ist gefährlich. Wenn der Typ wirklich seine Frau umgebracht hat, ist das gefährlich. Geh
+zur Polizei... Versuch's wenigstens mal!“
 
-„Na gut“, sagt Georg, „sie werden mir nicht glauben,
+„Na gut“, sagt Georg, „sie werden mir nicht glauben, aber ich kann ja trotzdem hingehen...“
 
-aber ich kann ja trotzdem hingehen...“
+---
+## Kapitel 4 - Auf der Polizeiwache
+Die Polizeiwache befindet sich in einem anderen Dorf. Georg und Hans fahren mit dem Fahrrad hin.
+Georg spricht in einem hässlichen, grauen Büro mit einem Polizisten. Der Polizeibeamte ist groß,
+blond und raucht. Er heißt Trumpel. Georg erzählt ihm, was er weiß. Besonders interessiert sieht
+der Polizist nicht aus. Er fragt:
 
-|\ APITEL
-
-Auf dem: Polizeiwache
-
-ie PolizeiWache 1 befindet sich in einem
-anderen Dorf. Georg und Hans fahren mit
-dem Fahrrad hin. Georg spricht in einem
-
-hässlichen, grauen Büro mit einem
-
-Polizisten. Der Polizeibeamte ist groß, blond und raucht. Er
-
-heißt Trumpel. Georg erzählt ihm, was er weiß. Besonders
-
-interessiert sieht der Polizist nicht aus. Er fragt:
 „Wie alt bist du?“
 „Ich bin 16“, lügt Georg.
 
@@ -331,13 +296,9 @@ Läuten kennst du doch, oder?“
 
 Georg hat gar keine Angst... er ist nur aufgeregt 5.
 
-## Kapitel
-
-Der Tag
-der Beerdigung
-
-eute ist Samstag und Georg braucht nicht
-in die Schule zu gehen.
+---
+## Kapitel 5 - Der Tag der Beerdigung
+Heute ist Samstag und Georg braucht nicht in die Schule zu gehen.
 Beim Frühstück meint seine Mutter:
 „Georg, du weißt doch, dass heute
 nachmittag Frau Beiers Beerdigung stattfindet ‘1.
@@ -438,12 +399,9 @@ Auch wenn das an sich noch nichts beweist, ist das
 
 doch immerhin ein Motiv, ein gutes Motiv.
 
-## Kapitel
-
-Angst
-
-lötzlich hört Georg etwas. Jemand kommt in
-die Wohnung. Er sieht auf die Uhr. Schon
+---
+## Kapitel 6 - Angst
+Plötzlich hört Georg etwas. Jemand kommt in die Wohnung. Er sieht auf die Uhr. Schon
 17.10! Die Zeit ist so schnell vergangen!
 Warum hat Hans nicht geklingelt? Oder hat
 er geklingelt? Und Georg hat ihn nicht gehört. Jetzt hat
@@ -550,11 +508,9 @@ Hans schaut seinen Freund an und fragt ihn:
 
 „Nein. Ihr seid rechtzeitig gekommen.“
 
-## Kapitel
-
-Die Lösung
-
-eorg und Hans sitzen im Polizeiwagen.
+---
+## Kapitel 7 - Die Lösung
+Georg und Hans sitzen im Polizeiwagen.
 „Warum hast du denn nicht geklingell?"
 fragt Georg.
 „Die Klingel hat nicht funktioniert. ls!
