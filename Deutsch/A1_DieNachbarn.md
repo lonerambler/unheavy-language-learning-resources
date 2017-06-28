@@ -206,6 +206,7 @@ blond und raucht. Er heißt Trumpel. Georg erzählt ihm, was er weiß. Besonders
 der Polizist nicht aus. Er fragt:
 
 „Wie alt bist du?“
+
 „Ich bin 16“, lügt Georg.
 
 „Du siehst aber jünger aus.“
@@ -214,25 +215,26 @@ der Polizist nicht aus. Er fragt:
 
 „Wissen deine Eltern, dass du hier bist?“
 
-.‚Mmmh. ..“
+„Mmmh...“
 
-„Na gut... Lass mir eure Telefonnummer und Adresse da.
-Wenn es etwas Neues gibt, rufe ich dich an...“
+„Na gut... Lass mir eure Telefonnummer und Adresse da. Wenn es etwas Neues gibt, rufe ich dich
+an...“
+
 „Und... das Pulver?“
-„Ah ja... das mysteriöse Pulver“, sagt er
-ironisch, „dann gib mir mal den Beutel. Den
-schicken wir ins Labor. Das ist
-garantiert Waschpulver oder so was.
-Aber man kann ja nie wissen.“
+
+„Ah ja... das mysteriöse Pulver“, sagt er ironisch, „dann gib mir mal den Beutel. Den schicken wir
+ins Labor. Das ist garantiert Waschpulver oder so was. Aber man kann ja nie wissen.“
+
 Georg bleibt stehen.
-„Was willst du denn noch?“ fragt der
-Polizist.
+
+„Was willst du denn noch?“ fragt der Polizist.
+
 „Wenn Sie was finden...“
+
 „Wirst du von uns hören.“
 
-&
+„Danke, Herr Wachtmeister.“ sagt Georg.
 
-„Danke, Herr Wachtmeister.‘ sagt Georg.
 Der Polizist sagt:
 
 „Tschüss.“
@@ -241,9 +243,8 @@ Hans wartet vor der Wache auf ihn.
 
 „Mit wem hast du gesprochen?“ fragt er.
 
-„Mit einem, der Trumpel heißt. Er hat den Plastikbeutel
-haben wollen. Er schickt ihn ins Labor. Nur... ich weiß
-nicht... großes Interesse hatte er nicht.“
+„Mit einem, der Trumpel heißt. Er hat den Plastikbeutel haben wollen. Er schickt ihn ins Labor.
+Nur... ich weiß nicht... großes Interesse hatte er nicht.“
 
 „Und jetzt?“ fragt Hans.
 
@@ -251,67 +252,55 @@ nicht... großes Interesse hatte er nicht.“
 
 „Und wie?“
 
-„Das weiß ich noch nicht. Da muss ich erstmal
-nachlesen, was in meinem Handbuch steht.“
+„Das weiß ich noch nicht. Da muss ich erstmal nachlesen, was in meinem Handbuch steht.“
 
 In Georgs Zimmer lesen Hans und Georg im Handbuch:
 
-„Viele Indizien kannst du am Tatort 1 finden.“ Die
-beiden Freunde sehen sich an.
+„Viele Indizien kannst du am Tatort finden.“ Die beiden Freunde sehen sich an.
 
-‘
-
-„Genau.‘ sagt Georg: „Irgendwie muß ich in Beiers
-Wohnung kommen. Vielleicht finde ich dort etwas.“
+„Genau.“ sagt Georg: „Irgendwie muß ich in Beiers Wohnung kommen. Vielleicht finde ich dort etwas.“
 
 „Und wie willst du da reinkommen?“
 
-„Über den Balkon. Die Balkone unserer und seiner
-Wohnung liegen nah beieinander.“
+„Über den Balkon. Die Balkone unserer und seiner Wohnung liegen nah beieinander.“
 
 „Mensch, das ist doch gefährlich!“
 
-„Ach was, das wird schon glatt 2 gehen, du wirst sehen.“
+„Ach was, das wird schon glatt gehen, du wirst sehen.“
 
-„Und ich sage dir, dass das gefährlich ist. Wie willst du
-sicher sein, dass er nicht zu Hause ist?“
+„Und ich sage dir, dass das gefährlich ist. Wie willst du sicher sein, dass er nicht zu Hause ist?“
 
-„Morgen... Morgen Nachmittag ist Frau Beiers
-Beerdigung 3. Das hat mir meine Mutter gesagt. Er muss ja
-wohl zur Beerdigung gehen. Während er dort ist, steige ich
-in seine Wohnung ein.“
+„Morgen... Morgen Nachmittag ist Frau Beiers Beerdigung. Das hat mir meine Mutter gesagt. Er muss
+ja wohl zur Beerdigung gehen. Während er dort ist, steige ich in seine Wohnung ein.“
 
 „Und wenn er... man weiß ja nie... wenn er zurückkommt?“
 
 „Ach, Hans...“
 
-„Na gut, dann machen wir das so: Ich warte unten vor
-dem Haus mit dem Fahrrad. Wenn ich den Beier sehe,
-läute " ich zweimal mit meiner neuen Fahrradklingel. Das
-Läuten kennst du doch, oder?“
+„Na gut, dann machen wir das so: Ich warte unten vor dem Haus mit dem Fahrrad. Wenn ich den Beier
+sehe, läute ich zweimal mit meiner neuen Fahrradklingel. Das Läuten kennst du doch, oder?“
 
-„ Na klar. Deine Fahrradklingel kennt ja ganz Stapfen.“
+„Na klar. Deine Fahrradklingel kennt ja ganz Stapfen.“
 
-„().K., aber... Angst habe ich doch.“
+„O.K., aber... Angst habe ich doch.“
 
-Georg hat gar keine Angst... er ist nur aufgeregt 5.
+Georg hat gar keine Angst... er ist nur aufgeregt.
 
 ---
 ## Kapitel 5 - Der Tag der Beerdigung
 Heute ist Samstag und Georg braucht nicht in die Schule zu gehen.
-Beim Frühstück meint seine Mutter:
-„Georg, du weißt doch, dass heute
-nachmittag Frau Beiers Beerdigung stattfindet ‘1.
 
-‚Ja, Mama.“
+Beim Frühstück meint seine Mutter: „Georg, du weißt doch, dass heute nachmittag Frau Beiers
+Beerdigung stattfindet.
 
-„Urn drei müssen wir in der Kirche sein.“
+„Ja, Mama.“
+
+„Um drei müssen wir in der Kirche sein.“
 
 „Wir?“ Georg denkt:
 
-„Wie soll ich mir denn die Nachbarwohnung ansehen,
-
-wenn ich mit meiner Mutter bei der Beerdigung bin?“
+„Wie soll ich mir denn die Nachbarwohnung ansehen, wenn ich mit meiner Mutter bei der Beerdigung
+bin?“
 
 „Aber natürlich. Du kommst doch wohl mit! Frau Beier
 ist immer so nett zu dir gewesen. Und da willst du noch
