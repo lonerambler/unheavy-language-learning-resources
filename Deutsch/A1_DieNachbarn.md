@@ -302,9 +302,8 @@ Beerdigung stattfindet.
 „Wie soll ich mir denn die Nachbarwohnung ansehen, wenn ich mit meiner Mutter bei der Beerdigung
 bin?“
 
-„Aber natürlich. Du kommst doch wohl mit! Frau Beier
-ist immer so nett zu dir gewesen. Und da willst du noch
-nicht einmal mitkommen, um sie... um ihr... ihr.“
+„Aber natürlich. Du kommst doch wohl mit! Frau Beier ist immer so nett zu dir gewesen. Und da
+willst du noch nicht einmal mitkommen, um sie... um ihr... ihr.“
 
 „... Lebewohl zu sagen?“
 
@@ -312,8 +311,7 @@ Seine Mutter sieht ihn böse an.
 
 „Das ist nicht schön von dir, Georg.“
 
-„Schon gut, war nur ein Witz 1. Ich komme ja mit.
-Aber...“
+„Schon gut, war nur ein Witz. Ich komme ja mit. Aber...“
 
 „Aber was?“
 
@@ -321,24 +319,17 @@ Aber...“
 
 „Bei deinem Lehrer? Am Samstag?“
 
-„Ja, Ich gehe mit Hans und vier anderen aus meiner
-Klasse. Dieses Jahr sollen wir ein Theaterstück für das
-Weihnachtsfest vorbereiten.“
+„Ja, Ich gehe mit Hans und vier anderen aus meiner Klasse. Dieses Jahr sollen wir ein Theaterstück
+für das Weihnachtsfest vorbereiten.“
 
 Das funktioniert. Seine Mutter glaubt ihm.
 
-„Also gut, Georg. Du kommst mit in die Kirche und dann
-gehst du zu deinem Lehrer.“
+„Also gut, Georg. Du kommst mit in die Kirche und dann gehst du zu deinem Lehrer.“
 
-Georg ist zufrieden. Er ruft Hans an. Treffpunkt: vor dem
+Georg ist zufrieden. Er ruft Hans an. Treffpunkt: vor dem Haus, um vier Uhr.
 
-Haus, um vier Uhr.
-
-Georg kommt punkt vier. Hans
-wartet schon mit seinem Fahrrad
-auf ihn. Niemand ist auf der
-Straße. In Stapfen sind immer nur
-wenige Leute auf der Straße.
+Georg kommt punkt vier. Hans wartet schon mit seinem Fahrrad auf ihn. Niemand ist auf der Straße.
+In Stapfen sind immer nur wenige Leute auf der Straße.
 
 „Also, ich geh jetzt rauf.“
 
@@ -346,107 +337,81 @@ wenige Leute auf der Straße.
 
 Georg geht ins Haus.
 
-Er geht auf den Küchenbalkon. Er sieht auf den
-Nachbarbalkon. Das Fenster steht offen. Er steigt auf den
-Nachbarbalkon. Ein bisschen Angst hat er schon. „Sieh
-nicht nach unten!“ sagt er laut zu sich selbst. Es ist nicht
-sehr schwierig. Er hat eine „Eins 1“ in Sport. Das muß bei
-einem Detektiv so sein.
+Er geht auf den Küchenbalkon. Er sieht auf den Nachbarbalkon. Das Fenster steht offen. Er steigt
+auf den Nachbarbalkon. Ein bisschen Angst hat er schon. „Sieh nicht nach unten!“ sagt er laut zu
+sich selbst. Es ist nicht sehr schwierig. Er hat eine „Eins“ in Sport. Das muß bei einem Detektiv
+so sein.
 
 Jetzt ist er in der Nachbarwohnung.
 
-Die Wohnung ist genau wie die Wohnung seiner Eltern.
-Nur ist sie komfortabler und schicker. Er geht durch alle
-Zimmer: Küche, Wohnzimmer, Schlafzimmer, Bad,
-Arbeitszimmer. Genau! Das muss er sich näher ansehen:
-Herrn Beiers Arbeitszimmer.
+Die Wohnung ist genau wie die Wohnung seiner Eltern. Nur ist sie komfortabler und schicker. Er geht
+durch alle Zimmer: Küche, Wohnzimmer, Schlafzimmer, Bad, Arbeitszimmer. Genau! Das muss er sich
+näher ansehen: Herrn Beiers Arbeitszimmer.
 
-In der Mitte des Zimmers steht ein großer Schreibtisch.
-Er setzt sich auf einen großen, braunen Stuhl und sieht
-sich um. Auf dem Schreibtisch liegen Papier, Umschläge 2
-und Briefe. Es gibt jede Menge Papier. Überall liegt
-beschriebenes Papier. Georg versteht nicht, was auf den
-Blättern 3 steht. So einfach, wie er es sich gedacht hatte, ist
-es also doch nicht, aber er ist ganz sicher, dass er sofort
+In der Mitte des Zimmers steht ein großer Schreibtisch. Er setzt sich auf einen großen, braunen
+Stuhl und sieht sich um. Auf dem Schreibtisch liegen Papier, Umschläge und Briefe. Es gibt jede
+Menge Papier. Überall liegt beschriebenes Papier. Georg versteht nicht, was auf den Blättern steht.
+So einfach, wie er es sich gedacht hatte, ist es also doch nicht,... aber er ist ganz sicher, dass
+er sofort erkennen wird, was wichtig ist.
 
-erkennen 4 wird, was wichtig ist.
+Der Schreibtisch hat drei Schubladen: die beiden offenen Schubladen sind leer. Die dritte ist
+verschlossen.
 
-Der Schreibtisch hat drei Schubladen: die beiden
-offenen Schubladen sind leer. Die dritte ist verschlossen.
+„Gut. Hier muss die Lösung sein.“
 
-„Gut. Hier muss die Lösung 1 sein.“
+Er öffnet die Schublade mit dem Brieföffner, der auf dem Schreibtisch liegt. In der Schublade liegt
+ein großer, brauner Umschlag. Er macht ihn auf. Im Umschlag sind Fotokopien. Er liest sie: ein
+Testament! Frau Beiers Testament! Sie hinterlässt alles ihrem Mann. Und die Summe, die sie ihm
+hinterlässt, ist enorm: eine Million Mark. „So reich ist sie gewesen!“
 
-Er öffnet die Schublade mit dem Brieföffner, der auf
-dem Schreibtisch liegt. In der Schublade liegt ein großer,
-brauner Umschlag. Er macht ihn auf. Im Umschlag sind
-Fotokopien. Er liest sie: ein Testament! Frau Beiers
-Testament! Sie hinterlässt 2 alles ihrem Mann. Und die
-Summe, die sie ihm hinterlässt, ist enorm: eine Million
-Mark. „50 reich ist sie gewesen!“
-
-Auch wenn das an sich noch nichts beweist, ist das
-
-doch immerhin ein Motiv, ein gutes Motiv.
+Auch wenn das an sich noch nichts beweist, ist das doch immerhin ein Motiv, ein gutes Motiv.
 
 ---
 ## Kapitel 6 - Angst
-Plötzlich hört Georg etwas. Jemand kommt in die Wohnung. Er sieht auf die Uhr. Schon
-17.10! Die Zeit ist so schnell vergangen!
-Warum hat Hans nicht geklingelt? Oder hat
-er geklingelt? Und Georg hat ihn nicht gehört. Jetzt hat
-Georg wirklich große Angst. Was soll er tun? Er hat keine
-Zeit mehr, über den Balkon hinauszukommen. Er geht ins
-Schlafzimmer. Unter das Bett? Nein! Er versteckt 1 sich...
-auf dem Schrank, hinter einem großen Koffer. Er hört, wie
-Herr Beier in der Wohnung herumgeht. Er geht ins
-Arbeitszimmer und kommt fast sofort wieder heraus. Er hat
+Plötzlich hört Georg etwas. Jemand kommt in die Wohnung. Er sieht auf die Uhr. Schon 17.10! Die
+Zeit ist so schnell vergangen! Warum hat Hans nicht geklingelt? Oder hat er geklingelt? Und Georg
+hat ihn nicht gehört. Jetzt hat Georg wirklich große Angst. Was soll er tun? Er hat keine Zeit
+mehr, über den Balkon hinauszukommen. Er geht ins Schlafzimmer. Unter das Bett? Nein! Er versteckt
+sich... auf dem Schrank, hinter einem großen Koffer. Er hört, wie Herr Beier in der Wohnung
+herumgeht. Er geht ins Arbeitszimmer und kommt fast sofort wieder heraus. Er hat natürlich gesehen,
+dass jemand in der Wohnung gewesen und vielleicht noch da ist. Jetzt sieht er überall nach. Georg
+hat panische Angst! Eine Hand schiebt den Koffer zur Seite... und er sieht ihn... Herrn Beier, ganz
+rot im Gesicht, mit einem Messer in der Hand.
 
-natürlich gesehen, dass jemand in der Wohnung gewesen
+„Komm sofort da runter!“ schreit er.
 
-und vielleicht noch da ist. Jetzt sieht er überall nach. (hmm
-hat panische Angst! Eine Hand schiebt ' (len
-Koffer zur Seite... und er sieht ihn Herrn
-Beier, ganz rot im Gesicht, mit einem Messer
-in der Hand.
-„Komm sofort da runter!“ schreit nr.
 „Was suchst du hier?“
-Georg hat zu viel Angst. Er möchte
-etwas sagen, aber er sagt kein Wort.
+
+Georg hat zu viel Angst. Er möchte etwas sagen, aber er sagt kein Wort.
 
 „Was du hier machst?!“
 
-„Ich...“ Georg weiß nicht. was er sagen soll.
+„Ich...“ Georg weiß nicht, was er sagen soll.
 
-‚„Du miese 2 kleine Ratte... aber jetzt... jetzt...“
+„Du miese kleine Ratte... aber jetzt... jetzt...“
 
-Er nimmt ihn am Arm und zieht ihn vom Schrank
-herunter. Mit dem Messer in der Hand macht er Georg
+Er nimmt ihn am Arm und zieht ihn vom Schrank herunter. Mit dem Messer in der Hand macht er Georg
 wirklich Angst.
 
-„Also? Willst du mir jetzt endlich antworten? Warum
-bist du hier?“
+„Also? Willst du mir jetzt endlich antworten? Warum bist du hier?“
 
 „Ich... ich weiß auch nicht...“
 
 „Komm mit!“
 
-„Ana! Sie brechen mir ja den Arm“, sagt Georg, aber
-
-Herr Beier zieht ihn hinter sich her.
+„Aua! Sie brechen mir ja den Arm“, sagt Georg, aber Herr Beier zieht ihn hinter sich her.
 
 Sie gehen zusammen in sein Arbeitszimmer.
 
-„Warum hast du die Schublade aufgebrochen 3? Was hast
-du denn gesucht?“
+„Warum hast du die Schublade aufgebrochen? Was hast du denn gesucht?“
 
 Herr Beier hält ihm das Messer unter die Nase.
 
-„Ich bin in die Wohnung gekommen, weil ich denke,
-dass Sie... dass Sie... Ihre Frau ermordet haben.“
+„Ich bin in die Wohnung gekommen, weil ich denke, dass Sie... dass Sie... Ihre Frau ermordet
+haben.“
 
-„Meine... Frau... Meine Frau...“ Herr Beier wird ganz rot
-und dann lacht er laut. „Da hast du wohl geträumt, du
-kleiner...“
+„Meine... Frau... Meine Frau...“ Herr Beier wird ganz rot und dann lacht er laut. „Da hast du wohl
+geträumt, du kleiner...“
 
 „Ich habe in der Nacht alles gehört.“
 
@@ -456,38 +421,29 @@ kleiner...“
 
 Jetzt sieht Herr Beier nachdenklich aus.
 
-‚Jetzt kommst du mit auf den Balkon.“
+„Jetzt kommst du mit auf den Balkon.“
 
 „Auf den Balkon? Warum auf den Balkon?“
 
-„Da bist du doch hergekommen, oder? und dahin gehst
-du jetzt zurück... und dann, zum Teufel 1!“
+„Da bist du doch hergekommen, oder? und dahin gehst du jetzt zurück... und dann, zum Teufel!“
 
-Georg hat verstanden: „Er will mich vom Balkon werfen,
-es soll wie ein Unfall aussehen.“ Er muss sofort etwas tun!
-Aber was? Er schreit:
+Georg hat verstanden: „Er will mich vom Balkon werfen, es soll wie ein Unfall aussehen.“ Er muss
+sofort etwas tun! Aber was? Er schreit:
 
-„Gleich kommt die Polizei! Ich habe die Polizei schon
-angerufen...“
+„Gleich kommt die Polizei! Ich habe die Polizei schon angerufen...“
 
 Aber Herr Beier lacht nur. Er glaubt ihm nicht.
 
-„Du neugieriges Aas 2!“ sagt Herr Beier und zieht ihn
+„Du neugieriges Aas!“ sagt Herr Beier und zieht ihn Richtung Balkon. Georg hat Angst, große Angst.
 
-Richtung Balkon. Georg hat Angst, große Angst.
+Plötzlich hören sie, dass jemand in der Wohnung ist. Es sind drei oder vier Personen. Sie sprechen
+laut. Dann kommt Hans mit zwei Polizisten ins Zimmer. Einer von ihnen ist Trumpel, der blonde
+Polizist, mit dem Georg gesprochen hat. Sie haben Pistolen in den Händen.
 
-Plötzlich hören sie, dass jemand in der Wohnung ist. Es
-sind drei oder vier Personen. Sie sprechen laut. Dann
-kommt Hans mit zwei Polizisten ins Zimmer. Einer von
-ihnen ist Trumpel, der blonde Polizist, mit dem Georg
-gesprochen hat. Sie haben Pistolen in den Händen.
+„Wir haben alles gehört. Sie sind verhaftet“ sagt Trumpel.
 
-„Wir haben alles gehört. Sie sind verhaftet 1“ sagt
-Trumpel.
-
-„Uff“, denkt Georg, „in letzter Minute.“ Die beiden
-Polizisten nehmen Herrn Beier in ihre Mitte und sagen zu
-Georg:
+„Uff“, denkt Georg, „in letzter Minute.“ Die beiden Polizisten nehmen Herrn Beier in ihre Mitte und
+sagen zu Georg:
 
 „Du kommst bitte auch mit auf die Wache.“
 
@@ -500,16 +456,15 @@ Hans schaut seinen Freund an und fragt ihn:
 ---
 ## Kapitel 7 - Die Lösung
 Georg und Hans sitzen im Polizeiwagen.
-„Warum hast du denn nicht geklingell?"
-fragt Georg.
-„Die Klingel hat nicht funktioniert. ls!
-wohl nass geworden.“
+
+„Warum hast du denn nicht geklingelt?" fragt Georg.
+
+„Die Klingel hat nicht funktioniert. Ist wohl nass geworden.“
 
 „Und woher ist die Polizei gekommen?“
 
-„Ich habe den Beier nach Hause kommen sehen und die
-Polizei angerufen. Aber Trumpel war nicht in seinem
-Büro.“
+„Ich habe den Beier nach Hause kommen sehen und die Polizei angerufen. Aber Trumpel war nicht in
+seinem Büro.“
 
 „Und wie...?“
 
@@ -519,18 +474,15 @@ Büro.“
 
 „Wie bitte?“ fragt Trumpel von vorne.
 
-„Nein, nein“, sagt Georg schnell, „ich wollte sagen: da
-habe ich Schwein 1 gehabt!“
+„Nein, nein“, sagt Georg schnell, „ich wollte sagen: da habe ich Schwein gehabt!“
 
 Trumpel lacht.
 
 Auf der Polizeiwache erklärt er Georg und Hans alles.
 
-„Ich habe deinen Plastikbeutel ins Labor geschickt. Der
-Experte hat mir gesagt: Gift! Ich habe gedacht: Also hatte
-der ]unge Recht 2. Dann habe ich gesucht, was wir über
-
-Beier wissen. Es gibt eine Akte über ihn. Aber...“
+„Ich habe deinen Plastikbeutel ins Labor geschickt. Der Experte hat mir gesagt: Gift! Ich habe
+gedacht: Also hatte der ]unge Recht. Dann habe ich gesucht, was wir über Beier wissen. Es gibt eine
+Akte über ihn. Aber...“
 
 „Aber was?“ fragen Georg und Hans im selben Moment.
 
@@ -599,10 +551,9 @@ den Frühstückstisch. Sein Vater schlägt die Zeitung auf.
 Auf der ersten Seite: Georgs Foto. „Was - das -
 GEEEEORG!!“
 
-FREIBURG IM BREISGAU
-
-Die „Ferien-Universität“
-
+---
+### FREIBURG IM BREISGAU
+#### Die „Ferien-Universität“
 Freiburg (200 000 Einwohner/ 24000 Studenten) hat eine große
 Universität. Viele junge Leute wollen dort studieren, denn
 die Universität ist renommiert. Aber es gibt noch einen
@@ -616,8 +567,7 @@ Deutschland, liegt in der Nähe.
 Freiburg liegt im „Dreiländereck” von Deutschland, Frankreich
 und der Schweiz - da kann man leicht ein paar Tage weg fahren.
 
-Überreste des Mittelalters - wieder aufgebaut
-
+#### Überreste des Mittelalters - wieder aufgebaut
 Freiburg ist eine alte Stadt. Die Altstadt, im Krieg durch Bomben
 
 zerstört, hat man wieder aufgebaut. Jährlich kommen viele
@@ -633,13 +583,9 @@ den Fußgängerstraßen gibt es
 schmale Rinnen (Baechle im
 Dialekt), durch die Wasser ﬂießt.
 Früher tranken die Pferde das
-
 Wasser. Heute
 
-Am Wochenende:
-
-Schauinsland
-
+#### Am Wochenende: Schauinsland
 Wer Zeit hat, fährt aus der
 Stadt hinaus. Die Umgebung
 von Freiburg bietet Wander-
@@ -654,9 +600,7 @@ hier. Sehr beliebt ist eine Fahrt zum Berg Schauinsland (1284m),
 von wo man, wie der Name schon sagt, eine schöne Aussicht hat.
 Hinauf fährt eine Seilbahn.
 
-Nicht in, sondern bei
-Freiburg
-
+#### Nicht in, sondern bei Freiburg
 Viele Freiburger wollen,
 und das ist ohne Frage
 typisch deutsch, nicht
@@ -675,6 +619,5 @@ und dann den Zug nehmen Für die Kinder der Familien, die
 hier wohnen, ist das nicht immer sehr lustig, vor allem, wenn sie
 größer werden und Schulen, Geschäfte und Freunde besuchen,
 die sie in Staufen nicht finden. Das ist natürlich nicht nur „bei
-
 Freiburg” so.
 
